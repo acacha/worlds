@@ -17,6 +17,20 @@ Ferry
 
 ![image](https://user-images.githubusercontent.com/4015406/153770863-2aa03d3b-3544-499f-8e3f-66aa6be6b564.png)
 
+# Avions
+
+Napols:
+- 20€ des de barcelona.
+
+![image](https://user-images.githubusercontent.com/4015406/153771265-9942cd46-ebe4-462d-8df5-e3373520b369.png)
+
+Palermo:
+- 70€
+![image](https://user-images.githubusercontent.com/4015406/153771338-7bf13da9-dabf-4f7f-925c-dd12860691e7.png)
+
+Brindisi:
+- 35€
+![image](https://user-images.githubusercontent.com/4015406/153771382-f505a7e6-b766-48dd-ab55-ba4944df6c19.png)
 
 # Idees
 - Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
