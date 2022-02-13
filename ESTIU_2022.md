@@ -41,6 +41,10 @@ Des de Cittavechia:
 
 ![image](https://user-images.githubusercontent.com/4015406/153771517-697794ad-02f4-4316-99ff-091745f3ebf8.png)
 
+Per tornar a SAlerno i recollir Aeroport:
+
+![image](https://user-images.githubusercontent.com/4015406/153771621-67a8e230-b565-4a2a-854b-0c84b16baee5.png)
+
 
 # Idees
 - Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
