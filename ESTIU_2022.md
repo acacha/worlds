@@ -32,5 +32,12 @@ Brindisi:
 - 35€
 ![image](https://user-images.githubusercontent.com/4015406/153771382-f505a7e6-b766-48dd-ab55-ba4944df6c19.png)
 
+# Tunez
+
+Des de Cittavechia:
+- 137€
+![image](https://user-images.githubusercontent.com/4015406/153771458-8305e738-8fb0-47ba-b20e-7e5f756c05cd.png)
+
+
 # Idees
 - Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
