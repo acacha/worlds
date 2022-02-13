@@ -17,3 +17,6 @@ Ferry
 
 ![image](https://user-images.githubusercontent.com/4015406/153770863-2aa03d3b-3544-499f-8e3f-66aa6be6b564.png)
 
+
+# Idees
+- Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
