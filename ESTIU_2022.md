@@ -1,5 +1,8 @@
 # COTXE O FERRY
 
+![image](https://user-images.githubusercontent.com/4015406/153933307-ecea1830-5117-4f28-91f2-8afe489e0f1d.png)
+
+
 ![image](https://user-images.githubusercontent.com/4015406/153770493-876555d4-9b88-43db-976b-08e22976d4e8.png)
 
 Cotxe:
