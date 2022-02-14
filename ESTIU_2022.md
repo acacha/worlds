@@ -45,6 +45,10 @@ Per tornar a SAlerno i recollir Aeroport:
 
 ![image](https://user-images.githubusercontent.com/4015406/153771621-67a8e230-b565-4a2a-854b-0c84b16baee5.png)
 
+# Zones Italia
+
+![image](https://user-images.githubusercontent.com/4015406/153900783-6f28d896-8e49-4198-918d-97b2c1c1d999.png)
+
 
 # Idees
 - Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
