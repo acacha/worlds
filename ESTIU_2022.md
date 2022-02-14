@@ -34,9 +34,15 @@ Brindisi:
 
 # Tunez
 
+Temps:
+- Cittavechia - Tunis: 18h aprox
+
 Des de Cittavechia:
 - 137€
 ![image](https://user-images.githubusercontent.com/4015406/153771458-8305e738-8fb0-47ba-b20e-7e5f756c05cd.png)
+
+![image](https://user-images.githubusercontent.com/4015406/153928190-c6991569-61b0-4717-be98-eaade1e5d51f.png)
+
 
 ![image](https://user-images.githubusercontent.com/4015406/153771517-697794ad-02f4-4316-99ff-091745f3ebf8.png)
 
