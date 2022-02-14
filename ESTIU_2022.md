@@ -1,7 +1,13 @@
 # GUIAS
 
 - https://www.viajablog.com/viaje-tunez/
--
+
+
+# Mapa/Ruta/Kms totals
+
+![image](https://user-images.githubusercontent.com/4015406/153938206-b2e3c2cb-6e83-4dc0-a576-77897338a635.png)
+
+
 # COTXE O FERRY
 
 ![image](https://user-images.githubusercontent.com/4015406/153933778-a36ac68a-1b21-43f6-be97-bd74becff537.png)
