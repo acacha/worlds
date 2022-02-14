@@ -42,6 +42,18 @@ Sur de ouz
 - Garganta de Tamerza
 - Chott El Djerid
 
+
+# Parc nacional Jbil
+
+## Ksar Ghilane (Oasi) | Henchir Tébournouk
+
+Sembla hi ha un lloc per banyar-se
+
+Recursos:
+- https://www.tripadvisor.co.uk/Attraction_Review-g477975-d2073390-Reviews-Ksar_Ghilane-Tataouine_Tataouine_Governorate.html
+- https://en.wikipedia.org/wiki/Ksar_Ghilane
+
+
 # MAPA
 
 ![image](https://user-images.githubusercontent.com/4015406/153901188-db25763f-5191-4510-81c5-1fe1c207edd0.png)
