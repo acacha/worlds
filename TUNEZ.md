@@ -1,6 +1,6 @@
 # Gent que ha anat a tunez
 
-- 3mastangoxelmundo
+- (3mastangoxelmundo)[https://www.youtube.com/channel/UCG0B7j2tnhHqhvoGParMoAw/videos?view=0]
 - van_sisters
 - 
 # SIM
