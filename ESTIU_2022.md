@@ -42,6 +42,8 @@ Des de Cittavechia:
 
 ![image](https://user-images.githubusercontent.com/4015406/153926689-eba82f30-f881-452d-bcfc-583667e95942.png)
 
+![image](https://user-images.githubusercontent.com/4015406/153927338-9bc53a42-29e2-479f-bc5f-78dd3c431f95.png)
+
 Per tornar a SAlerno i recollir Aeroport:
 
 ![image](https://user-images.githubusercontent.com/4015406/153771621-67a8e230-b565-4a2a-854b-0c84b16baee5.png)
