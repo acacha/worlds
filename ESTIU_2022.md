@@ -2,9 +2,9 @@
 
 - https://www.viajablog.com/viaje-tunez/
 
-
 # Mapa/Ruta/Kms totals
 
+2 setmanas: uns 150Km dia
 ![image](https://user-images.githubusercontent.com/4015406/153938206-b2e3c2cb-6e83-4dc0-a576-77897338a635.png)
 
 
