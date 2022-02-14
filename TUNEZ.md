@@ -1,4 +1,10 @@
+# MOneda 
+
+Dinar tunisià: 0,31 EUR aprox 1/3€
+
 # CAMPER
+
+- Alguns llocs al park 4night
 
 # Deserts i Oasis
 
