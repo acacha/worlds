@@ -1,4 +1,10 @@
-# MOneda 
+# SIM
+
+- Compañias: Tunisia: Tunisie Télécom, Ooredoo and Orange.
+- Tunisie Telecom: 25 TND=$8 USD with 25 GB data.
+- Holafly: https://viajero.holafly.com/sim-viaje/tarjeta-sim-tunez/
+
+# Moneda 
 
 Dinar tunisià: 0,31 EUR aprox 1/3€
 
