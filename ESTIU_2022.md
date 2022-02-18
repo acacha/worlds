@@ -91,7 +91,16 @@ Per tornar a SAlerno i recollir Aeroport:
 
 https://davidsevcab.blog/2019/12/28/desierto-del-sahara-tunez-%F0%9F%87%BA%F0%9F%87%B8-sahara-desert-tunisia/
 
-# Excursions desert Tunez
+# Desert
+
+- https://www.elrincondesele.com/sur-de-tunez-entre-oasis-y-desiertos-parte-1-de-2/
+
+# Blogs
+
+https://www.economiadigital.es/tendenciashoy/viajeros/destinos/tunez-de-la-capital-al-desierto-en-un-roadtrip-de-10-dias_20076846_102.html
+
+## Excursions desert Tunez
 - http://www.vuededesert.com/indexen.php
 - https://www.campement-zmela.com/
 - https://www.campement-zmela.com/tarifs/
+- https://www.elrincondesele.com/sur-de-tunez-entre-oasis-y-desiertos-parte-1-de-2/
