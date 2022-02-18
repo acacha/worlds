@@ -86,3 +86,11 @@ Per tornar a SAlerno i recollir Aeroport:
 
 # Idees
 - Viatjar a Tunisia: 3 setmanes fins a San Joan dia 23 tornar a buscar xiquets?
+
+# Chenini
+
+https://davidsevcab.blog/2019/12/28/desierto-del-sahara-tunez-%F0%9F%87%BA%F0%9F%87%B8-sahara-desert-tunisia/
+
+# Excursions desert Tunez
+- http://www.vuededesert.com/indexen.php
+- https://www.campement-zmela.com/
