@@ -94,3 +94,4 @@ https://davidsevcab.blog/2019/12/28/desierto-del-sahara-tunez-%F0%9F%87%BA%F0%9F
 # Excursions desert Tunez
 - http://www.vuededesert.com/indexen.php
 - https://www.campement-zmela.com/
+- https://www.campement-zmela.com/tarifs/
