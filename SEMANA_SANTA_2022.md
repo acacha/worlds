@@ -2,8 +2,19 @@
 
 ## França 
 
+## Canal del Garona
 
-Dolce Via
+- Etapa 1: Burdeos – Sauveterre de Guyenne (54 km)
+- Etapa 2: Sauveterre de Guyenne – Le Mas d’Agenais (47 km)
+- Etapa 3: Le Mas d’Agenais – Agen (47 km)
+- Etapa 4: Agen – Moissac (44 km)
+- Etapa 5: Moissac – Grisolles (38 km)
+- Etapa 6: Grisolles – Toulouse (30 km)
+
+Recursos:
+- https://conalforjas.com/canal-garona-bicicleta/
+
+## Dolce Via
 - 50km [Wikiloc](https://ca.wikiloc.com/rutes-cicloturisme/la-dolce-via-ardeche-10682699)
 - Cal arribar quasi a VAlence, unes 7h des de Tortosa
 
