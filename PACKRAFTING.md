@@ -11,7 +11,7 @@ Llocs:
 - It's also possible to start 5 miles upriver at Glasbury with river access from 10am to 4pm. In normal summer levels the river is straightforward with 
 most rapids at grade 1, but even in summer the river can flood after heavy rainfall. 
 - There are grade 2 rapids at Monnington Falls and Symond's Yat, which can be portaged if necessary. 
-- A detailed guidebook should be consulted for details of all the rapids and how to negotiate them (e.g. the online **Environment Agency Canoeists' guide to the River Wye**). (Document)[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/301603/gemi1011bujd-e-e.pdf]
+- A detailed guidebook should be consulted for details of all the rapids and how to negotiate them (e.g. the online **Environment Agency Canoeists' guide to the River Wye**). [Document](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/301603/gemi1011bujd-e-e.pdf)
 
 Dias:
 - **DAY 1**: is short with 4.6 miles paddling to Whitney-on-Wye where there's the Boat Inn pub and a campsite run by The Pound B&B. 
