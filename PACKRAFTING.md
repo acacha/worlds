@@ -24,3 +24,15 @@ Dias:
 
 Recursos
 - https://osmaps.ordnancesurvey.co.uk/route/3414816/Packrafting-on-the-River-Wye-HayonWye-to-Chepstow-7-day-camping-trip
+
+## Thames/Isis
+
+Cal un permis que val uns 45Pounds (54,35 EUR): https://members.britishcanoeing.org.uk/waterways-licence/
+
+A four day packrafting trip down the upper River Thames/Isis to Oxford. Start with a bus to Highworth from Swindon, then walk to the river at Hannington Bridge. The upper river is narrow, fast-flowing and can be blocked with fallen trees up to the first lock at Lechlade, where there's camping at the Trout Inn. Beyond here there are locks every few miles, the lock keepers are generally happy to let small craft through, although it's always possible to portage around, plus there's a new canoe pass at Radcot Lock. At the end of the second day food is available at the Trout Inn at Tadpole Bridge, with camping a mile away at Turkey Creek. At the end of the third day food is available at the Ferryman Inn, with camping a mile away at Home Farm. Many of the locks also have small camping areas.
+
+4 dies:
+- Lock: exclusa
+
+Recursos:
+- https://osmaps.ordnancesurvey.co.uk/route/3299175/Packrafting-on-the-upper-River-Thames-Isis-Highworth-to-Oxford-4-day-camping-trip
