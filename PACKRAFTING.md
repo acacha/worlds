@@ -5,6 +5,18 @@ Molt interessant la web de:
 
 Llocs:
 
+## River Medway
+
+The facilities provided by the Environment Agency on the River Medway make it one of the best rivers for paddle sports in the south of England, setting a gold standard for others to follow. There's a dedicated Medway Canoe Trail website (http://www.medwaycanoetrail.co.uk/), slipways at the start and end of the trail, free camping (without facilities) at Oak Weir Lock and Stoneham Disused Lock, a good campsite at Allington Lock, a shower and toilet block at Yalding, low level landing stages at all the locks making them easy to portage if required and uniquely a series of canoe passes/chutes which make it easy to travel downstream avoiding most of the locks entirely.
+
+The canoe passes are graded from 1 (easy) to 3 (potentially dangerous), largely based on the speed of the chute. They are encountered in the following order: Tonbridge Town (Grade 1, portage alongside when dry), Eldridge's (Grade 1), Porter's (Grade 2), East (Grade 2), Oak Weir (Grade 2), Sluice Weir (Grade 3), Hampstead/Yalding (portage), Teston (Grade 1/2) and East Farleigh (portage). They are all suitable for a packraft and are exhilarating to descend. I found the narrower and steeper passes (Sluice Weir being the most extreme example) to actually be easier than the wider and slower ones (e.g. Oak Weir) where there's a tendency for the boat to turn sideways risking a scrape or a capsize. There are several online guides to the canoe passes which are worth reading before tackling them.
+
+The canoe trail is challenging to do in a single day, but there are railway stations at regular intervals so it can be easily split, or completed as a two day trip, camping at one of the free campsites or at The Hop Farm campsite.
+
+Recursos
+- https://osmaps.ordnancesurvey.co.uk/route/3541856/Packrafting-on-the-River-Medway-Tonbridge-to-Allington
+- http://www.medwaycanoetrail.co.uk/
+
 ## Riu Wye
 
 - Start at Hay-on-Wye, reached from Cardiff by the T14 bus (free at weekends). 
