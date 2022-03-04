@@ -23,6 +23,9 @@ Llocs per dormir:
 
 ![image](https://user-images.githubusercontent.com/4015406/156792975-ac00f1d5-a43d-498e-a43d-d38c6b13acdc.png)
 
+També és una camí senyalitzat caminar o bici
+- https://ca.wikiloc.com/rutes-btt/great-glen-way-en-1-etapa-12096198
+
 Recursos:
 -http://greatglencanoetrail.info/
 
