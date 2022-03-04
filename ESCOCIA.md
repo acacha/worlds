@@ -11,13 +11,20 @@ Recursos:
 
 # Great Glen Canoe Trail
 
+http://greatglencanoetrail.info/
+
 5 dies de ruta passant pel lago Ness.
 
 It is an epic 60 mile (95km) journey crossing Scotland in 5 days and conquering the formidable open waters of Loch Lochy and Loch Ness, a challenge in itself.
 
-Gran ruta de Inverness a Banavie pel Caledonian Canal
+Gran ruta de Inverness a Banavie pel Caledonian Canal.
 
-http://greatglencanoetrail.info/
+Llocs per dormir:
+
+![image](https://user-images.githubusercontent.com/4015406/156792975-ac00f1d5-a43d-498e-a43d-d38c6b13acdc.png)
+
+Recursos:
+-http://greatglencanoetrail.info/
 
 # Glasgow to Edinburgh Canoe Trail
 
