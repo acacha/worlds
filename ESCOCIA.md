@@ -35,4 +35,10 @@ Recursos:
 
 # River Spey
 
+Passa per un parc nacional:
+- cairngormsnationalpark.co.uk
+
+Recursos:
+-http://www.reizen-langs-rivieren.nl/the-rivers/river-spey-from-source-to.html
+
 # River Tweed
