@@ -1,5 +1,8 @@
 # KAYAK
 
+-[Diario de Kayak](https://www.diariodekayak.es/vuelta-ibiza-kayak)
+-[Wikiloc de Diario de Kayak](https://es.wikiloc.com/rutas-kayac/vuelta-ibiza-kayak-2011-1812958)
+- [Las aventuras de Bilke](https://lasaventurasdebilke.wordpress.com/2020/10/04/vuelta-a-ibiza-en-kayak/)
 # Llocs
 
 - Islote Es Vedrá
