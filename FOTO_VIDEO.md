@@ -18,7 +18,11 @@ Tutorials:
 - https://ttsreader.com/es/
 - https://www.voicebooking.com/en/free-voice-over-generator
 - https://www.techsmith.com/blog/voice-over/
+- https://acapela-box.com/AcaBox/index.php
+- https://ttsreader.com/es/
 
 ## Català
 
 Aina no té un lector ?
+
+- https://acapela-box.com/AcaBox/index.php
