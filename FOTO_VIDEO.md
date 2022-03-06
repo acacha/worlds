@@ -16,3 +16,9 @@ Tutorials:
 # Narradors audio | Veu en Off | Voice over
 
 - https://ttsreader.com/es/
+- https://www.voicebooking.com/en/free-voice-over-generator
+- https://www.techsmith.com/blog/voice-over/
+
+## Català
+
+Aina no té un lector ?
