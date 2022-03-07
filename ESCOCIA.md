@@ -39,6 +39,10 @@ Passa per un parc nacional:
 - cairngormsnationalpark.co.uk
 
 Recursos:
--http://www.reizen-langs-rivieren.nl/the-rivers/river-spey-from-source-to.html
+- http://www.reizen-langs-rivieren.nl/the-rivers/river-spey-from-source-to.html
+- https://www.tiso.com/blog/riding-the-spey
+- https://gopaddling.info/rivers/river-spey/
+- https://roddymacleod.wordpress.com/2014/08/18/canoe-trip-down-the-river-spey-with-spirit-of-the-spey/
+- https://www.songofthepaddle.co.uk/the-inaugural-scottish-packrafting-adventure-bike--t53602.html
 
 # River Tweed
