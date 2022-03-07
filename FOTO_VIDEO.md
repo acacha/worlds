@@ -15,6 +15,7 @@ Tutorials:
 
 # Narradors audio | Veu en Off | Voice over
 
+- https://micmonster.com/
 - https://speechelo.com/
 - https://ttsreader.com/es/
 - https://www.voicebooking.com/en/free-voice-over-generator
