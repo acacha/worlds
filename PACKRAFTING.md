@@ -1,3 +1,11 @@
+# FRANCE
+
+# TARN
+
+- https://willemvandoorne.wordpress.com/2013/11/02/hiking-and-packrafting-up-and-down-the-tarn-and-ardeche-valleys/
+- https://backpackinglight.com/forums/topic/41299/
+
+
 # ANGLATERRA
 
 Molt interessant la web de:
