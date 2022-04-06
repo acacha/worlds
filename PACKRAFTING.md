@@ -16,6 +16,9 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
 
 ![image](https://user-images.githubusercontent.com/4015406/161921694-46b11358-47fb-453e-87e1-324fd90c978d.png)
 
+Grand Traverse de Jura (GTJ) BTT:
+- Grand Traverse Jura wikiloc
+
 Possibilitat bikerafting
 
 - https://packrafteurope.com/blogs/news/grande-traversee-du-jura-en-bikerafting
