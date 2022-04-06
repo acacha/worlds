@@ -12,6 +12,15 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
 
 # FRANCE
 
+# JURA
+
+![image](https://user-images.githubusercontent.com/4015406/161921694-46b11358-47fb-453e-87e1-324fd90c978d.png)
+
+Possibilitat bikerafting
+
+- https://packrafteurope.com/blogs/news/grande-traversee-du-jura-en-bikerafting
+- https://www.gtj.asso.fr/en/routes-and-activites/gtj-bike-riding-route/
+
 # DROME
 
 ![image](https://user-images.githubusercontent.com/4015406/161610538-e65f8381-cb08-4bc8-a953-611aef8cf98a.png)
