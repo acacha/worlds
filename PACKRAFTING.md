@@ -1,3 +1,7 @@
+# Riu Segre
+
+- Tram final Seròs - Aiguabarreig: https://ca.wikiloc.com/rutes-kaiac/packrafting-riu-segre-seros-aiguabarreig-100606252
+
 # Cañon del sil
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
