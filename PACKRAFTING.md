@@ -1,5 +1,8 @@
 # Riu Segre
 
+Tram final Seròs - Aiguabarreig
+- Instagram: https://www.instagram.com/p/CcflCDQskGF/?utm_source=ig_web_copy_link
+- Fotos: https://photos.app.goo.gl/MXNSpkMp9P69ewjz5
 - Tram final Seròs - Aiguabarreig: https://ca.wikiloc.com/rutes-kaiac/packrafting-riu-segre-seros-aiguabarreig-100606252
 
 # Cañon del sil
