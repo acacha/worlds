@@ -1,5 +1,10 @@
 # Riu Segre
 
+
+https://drive.google.com/file/d/1jhSJuF_9CtA2LyOEd6kHX8csAXfTDydm/view?usp=sharing
+
+https://1library.co/document/y6p80lgq-navegaci%C3%B3-pirag%C3%BCisme-fluvials-catalana-noguera-pallaresa-noguera-ribagor%C3%A7ana.html
+
 ## Bikepacking
 
 https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarreig-101057610
