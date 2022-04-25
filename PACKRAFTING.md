@@ -1,9 +1,13 @@
 # Riu Segre
 
-![image](https://user-images.githubusercontent.com/4015406/164222700-33466fab-39e5-4cd7-b995-2b64d647ee80.png)
+## Bikepacking
+
+https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarreig-101057610
 
 
-Tram final Seròs - Aiguabarreig
+# Tram final Seròs - Aiguabarreig
+ 
+ ![image](https://user-images.githubusercontent.com/4015406/164222700-33466fab-39e5-4cd7-b995-2b64d647ee80.png)
 - Instagram: https://www.instagram.com/p/CcflCDQskGF/?utm_source=ig_web_copy_link
 - Fotos: https://photos.app.goo.gl/MXNSpkMp9P69ewjz5
 - Tram final Seròs - Aiguabarreig: https://ca.wikiloc.com/rutes-kaiac/packrafting-riu-segre-seros-aiguabarreig-100606252
