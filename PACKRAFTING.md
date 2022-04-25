@@ -26,6 +26,13 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
 
 # FRANCE
 
+# ARIEGE
+
+Ruta en kaiak sobre el rio Ariege, desde el embarcadero de Sinsat hasta Bompas. Pasamos también por Tarascon-Sur-Ariege. Fuimos con la empresa Wateploof, ubicada en el mismo embarcadero. El precio por persona son 25 euros. Aparcamos el vehiculo y nos recogieron en Bompas, previa llamada de teléfono para avisar que ya llegamos. Nos proporcionaron el kaiak y el bidón.
+En julio las algas tienen flores, por lo que el paseo por el río parece sobre un manto de flores, a diferencia del mes de septiembre que no hay. Se llaman Ranúnculo flotante, una preciosidad.
+
+https://ca.wikiloc.com/rutes-kaiac/ariege-sinsat-tarscon-sur-ariege-bompas-18883325
+
 # JURA
 
 ![image](https://user-images.githubusercontent.com/4015406/161921694-46b11358-47fb-453e-87e1-324fd90c978d.png)
