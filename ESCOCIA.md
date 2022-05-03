@@ -9,7 +9,8 @@ Nord (Inverness i amunt 2/3 setmanes)
 - 3 Dies lewis i Harris
 
 Sud (11 dies)
-- Edinburg
+- https://madaboutravel.com/ruta-once-dias-en-escocia/
+- Edinburg i acabar a glasgow
 - Loch Lomont
 3 setmanes + 1 setmana aproximació i ciutats.
 
