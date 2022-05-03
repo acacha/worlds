@@ -1,3 +1,12 @@
+# Skye Island
+
+Mapa:
+- https://www.google.com/maps/d/u/0/viewer?mid=1qGui4lsGKv9mvlqrs2F8MSKbITaq3fYb&ll=57.418566722064966%2C-6.395530264002855&z=10
+- https://www.earthtrekkers.com/perfect-isle-of-skye-itinerary/
+
+Llocs:
+- https://www.earthtrekkers.com/isle-of-skye-best-things-to-do/
+
 # Islas Shetland
 
 Puede que las Islas Shetland sean el punto más nórdico de las Islas Británicas pero las opciones de transporte las hacen sorprendentemente accesibles. Hay vuelos directos al aeropuerto de Sumburgh desde Aberdeen, Edimburgo, Glasgow, Inverness y Kirkwall, en las Orcadas, y todos duran menos de dos horas. Puede también tomar el ferry de Northlink desde Aberdeen, cuyo trayecto dura alrededor de 12 horas.
