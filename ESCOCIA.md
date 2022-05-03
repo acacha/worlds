@@ -2,7 +2,15 @@ Smidge -> Repelent antimosquits | Fer fogueres
 
 # North coast 500 escocia
 
-https://madaboutravel.com/itinerario-ruta-north-coast-500-escocia/
+- https://madaboutravel.com/itinerario-ruta-north-coast-500-escocia/
+- https://www.northcoast500.com/2021/01/tips-planning-trip-along-north-coast-500/
+
+
+# Islas de Lewis and Harris
+
+https://madaboutravel.com/que-hacer-y-que-ver-en-la-isla-de-lewis-en-las-hebridas-de-escocia/
+
+# Islas 
 
 
 # Skye Island
