@@ -1,3 +1,10 @@
+Smidge -> Repelent antimosquits | Fer fogueres
+
+# North coast 500 escocia
+
+https://madaboutravel.com/itinerario-ruta-north-coast-500-escocia/
+
+
 # Skye Island
 
 Mínim 2 dias, recomanable 4 dies.
