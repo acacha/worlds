@@ -1,5 +1,7 @@
 # Skye Island
 
+Mínim 2 dias, recomanable 4 dies.
+
 Mapa:
 - https://www.google.com/maps/d/u/0/viewer?mid=1qGui4lsGKv9mvlqrs2F8MSKbITaq3fYb&ll=57.418566722064966%2C-6.395530264002855&z=10
 - https://www.earthtrekkers.com/perfect-isle-of-skye-itinerary/
