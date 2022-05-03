@@ -1,3 +1,7 @@
+# Islas Shetland
+
+Puede que las Islas Shetland sean el punto más nórdico de las Islas Británicas pero las opciones de transporte las hacen sorprendentemente accesibles. Hay vuelos directos al aeropuerto de Sumburgh desde Aberdeen, Edimburgo, Glasgow, Inverness y Kirkwall, en las Orcadas, y todos duran menos de dos horas. Puede también tomar el ferry de Northlink desde Aberdeen, cuyo trayecto dura alrededor de 12 horas.
+
 # Canoe
 
 Many waterways in England and Wales require a licence to paddle. Save money on your licence and secure paddling insurance by joining British Canoeing. Use our easy step RapidJoin process.
