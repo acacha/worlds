@@ -1,5 +1,14 @@
 Smidge -> Repelent antimosquits | Fer fogueres
 
+Estimació dies:
+
+- 7 dies North coast ruta més illes:
+- 5 dias illa Skye
+- 3 Dies Oarkney
+- 3 Dies lewis i Harris
+
+3 setmanes + 1 setmana aproximació i ciutats.
+
 # North coast 500 escocia
 
 - https://madaboutravel.com/itinerario-ruta-north-coast-500-escocia/
