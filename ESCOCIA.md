@@ -8,10 +8,13 @@ Nord (Inverness i amunt 2/3 setmanes)
 - 3 Dies Oarkney
 - 3 Dies lewis i Harris
 
-Sud
+Sud (11 dies)
 - Edinburg
 - Loch Lomont
 3 setmanes + 1 setmana aproximació i ciutats.
+
+![image](https://user-images.githubusercontent.com/4015406/166506748-f17b91cf-c5c4-4742-a70b-05d7834a0472.png)
+
 
 # North coast 500 escocia
 
