@@ -17,7 +17,7 @@ Passos a tenir en compte:
 - https://vimeo.com/452646672 mostra el caos
 - https://vimeo.com/357390713: Setiembre 2019 12 m3/s 
 - https://vimeo.com/181372272: Agosto 2016
-- **El Purgatorio**
+- **El Purgatorio**: Pas nivell III, cal tenir en compte el sifó que hi ha a la dreta al final del pas.
 - https://vimeo.com/357390713: Setiembre 2019 12 m3/s 
 - **El muro**:
 - https://vimeo.com/357390713: Setiembre 2019 12 m3/s 
