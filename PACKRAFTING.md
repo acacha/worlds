@@ -2,6 +2,12 @@
 
 [PACKRAFTING France
 ](https://github.com/acacha/worlds/blob/main/PACKRAFTING_FRANCE.md)
+
+# Riu Cabriel
+
+[Cabriel
+](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
+
 # Riu Segre
 
 
