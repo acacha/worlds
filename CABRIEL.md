@@ -1,4 +1,8 @@
 
+# Distancias i tramos
+
+- Embalse Contreras - Puente Vadocañas: https://ca.wikiloc.com/rutes-senderisme/embalse-contreras-puentre-de-vadocanas-103674112
+
 # Topoguia
 
 Mapa Google:
