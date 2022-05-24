@@ -25,6 +25,12 @@ Vídeo:
 Diversos vídeos con diferentes caudales:
 - https://vimeo.com/357390713: Setiembre 2019 12 m3/s
 
+
+Tram baix WIKILOC amb marcas d'on es poden trobar problemas/azuds i proteijos:
+
+- https://www.wikiloc.com/kayaking-canoeing-trails/travesia-rio-cabriel-villatoya-casas-del-rio-16984301
+- https://www.google.com/maps/d/u/0/viewer?mid=1wRnCM5T_Gn6n85lvF4fZiXZV9uU&ll=39.47008871660554%2C-1.5131377110043998&z=19
+
 Recursos:
 - https://lavidaessilbar.blogspot.com/2013/11/topoguia-del-cabriel-para-kayak.html
 - https://www.google.com/maps/d/u/0/viewer?mid=1wRnCM5T_Gn6n85lvF4fZiXZV9uU&ll=39.41537488392469%2C-1.328444480895996&z=12
