@@ -7,6 +7,11 @@ Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.co
 
 https://www.google.com/maps/d/edit?mid=15CDuvLJDn_a_fUiLHEKZYq6h-toUosQ&usp=sharing
 
+# Album de fotos
+
+Només hi ha fotos del tram de la silla, l'altre vaig estar molt ocupat navegant ;-)
+
+![image](https://user-images.githubusercontent.com/4015406/175023704-4269f86f-cfb8-4f7d-b400-85c2bd78b735.png)
 
 # Instagram
 
