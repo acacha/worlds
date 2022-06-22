@@ -24,6 +24,9 @@ Realitzat el 21 de Juny de 2022. Dos trams
 
 ![image](https://user-images.githubusercontent.com/4015406/175016309-d30c20ab-afa3-4bfb-b16d-9ebf87b8d3a1.png)
 
+![image](https://user-images.githubusercontent.com/4015406/175019894-888c946f-8a04-45ba-bc31-d0c4cca7c6c4.png)
+
+
 # Enllaços externs 
 
 - River Guru: https://www.riverguru.es/noticias/rio-esera-guia-de-kayak
