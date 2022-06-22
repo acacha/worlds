@@ -7,7 +7,6 @@ Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.co
 
 https://www.google.com/maps/d/edit?mid=15CDuvLJDn_a_fUiLHEKZYq6h-toUosQ&usp=sharing
 
-<iframe src="https://www.google.com/maps/d/embed?mid=15CDuvLJDn_a_fUiLHEKZYq6h-toUosQ&hl=ca&ehbc=2E312F" width="640" height="480"></iframe>
 
 # Instagram
 
