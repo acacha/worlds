@@ -30,3 +30,5 @@ Bona combinació per anar a veure el cabo de gata, són 6 hores en coche. Aeropo
 # Rutes
 
 ![image](https://user-images.githubusercontent.com/4015406/188266258-95c8830a-ef15-40d5-b3f2-f0705c4dc975.png)
+
+![image](https://user-images.githubusercontent.com/4015406/188266288-7a8ff34a-2622-48dd-9467-d9f464b363eb.png)
