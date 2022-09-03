@@ -15,6 +15,11 @@ O dia 4 a Barcelona
 
 # Ferries
 
+## Algeciras - Ceuta
+
+![image](https://user-images.githubusercontent.com/4015406/188267167-ffde79b4-b37e-481c-b5de-f40e402c47c9.png)
+
+
 ## Almeria Melilla
 
 ![image](https://user-images.githubusercontent.com/4015406/188267069-ce175c64-7ed6-4bfd-a41d-1b45aa37eab9.png)
