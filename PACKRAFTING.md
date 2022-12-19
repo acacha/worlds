@@ -1,4 +1,4 @@
-# Amigos
+# Amigos del packraft
 
 - Cèsar Pasadas (aka Iteribai): Instagram: https://www.instagram.com/iteribai/ | Canal Youtube: https://www.youtube.com/@iteribai
 - Blog de Carlos Izquierdo: https://lavidaessilbar.blogspot.com/
@@ -7,6 +7,13 @@
 - Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/
 - Ernesto Pastor: Creador de montañas vacias y packrafter Mekong: https://montanasvacias.com/
 - Curro Gonzalez: Sobre escalada: https://sobreescalada.com/
+- Sam i Dolça, packrafter Mekong: https://pinzat.com/ | https://www.instagram.com/pinzat/
+- David Casalprim | https://espaibici.com/ | Canal Youtube: https://www.youtube.com/user/espaibici
+
+# Licencias y seguros
+
+- Club Salter: http://www.salt-ter.net/
+- C.D los Gancheros: https://www.facebook.com/losgancheros/?locale=es_ES
 
 # Rutes, libros y Blogs
 
@@ -72,6 +79,11 @@ https://github.com/acacha/worlds/blob/main/ESERA.md
 
 ## Riu Gállego
 
+# Resto de España
+
+## Rio Tajo
+
+- Club deportivo los Gancheros, Alto Tajo | https://www.facebook.com/losgancheros/?locale=es_ES
 
 # Montenegro
 
