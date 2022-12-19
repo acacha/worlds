@@ -15,6 +15,11 @@ Ver también: https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
 ## Tramo Invernalia
 
+![image](https://user-images.githubusercontent.com/4015406/208480076-cd1f7419-fc1a-43ae-bf9f-8bed47e99c96.png)
+
+
+Wikiloc: https://ca.wikiloc.com/rutes-kaiac/packraft-riu-millars-mijares-tramo-invernalia-121567909
+
 ## Tramo cola pantano (caos)
 
 Wikiloc: https://ca.wikiloc.com/rutes-kaiac/packrafting-tramo-caos-cola-pantano-pobla-arenoso-121566826
