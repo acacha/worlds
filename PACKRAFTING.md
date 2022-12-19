@@ -68,6 +68,13 @@ https://1library.co/document/y6p80lgq-navegaci%C3%B3-pirag%C3%BCisme-fluvials-ca
 
 https://github.com/acacha/worlds/blob/main/3353607.pdf.pdf
 
+### Congost de 3 ponts
+
+![image](https://user-images.githubusercontent.com/4015406/208499176-4a5e216a-48dd-4b33-b57b-af0f9e39cc16.png)
+
+Informació proporcionada per Josep Vilella i Dirk6aa1
+
+
 ### Bikepacking | Bikerafting
 
 https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarreig-101057610
