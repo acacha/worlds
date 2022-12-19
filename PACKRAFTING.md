@@ -110,6 +110,10 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 
 # Aragó
 
+## Congost del Entremón
+
+[Congost del Entremón](https://gist.github.com/acacha/8a98ba7c2b43f41322a50cbd65d60954)
+
 ## Riu Esera
 
 https://github.com/acacha/worlds/blob/main/ESERA.md
