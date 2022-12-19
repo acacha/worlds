@@ -13,6 +13,11 @@ Tramo de 6,4 km.
 
 Wikiloc: https://es.wikiloc.com/wikiloc/edit.do?event=info&id=121576342&NEXTHOP=aHR0cHM6Ly9lcy53aWtpbG9jLmNvbS9ydXRhcy1rYXlhYy9wYWNrcmFmdC1wbGF5YS1kZS1jYW1wby1sYS1zaWxsYS0xMjE1NzYzNDI=
 
+Nivel con que lo hice según river app:
+
+![image](https://user-images.githubusercontent.com/4015406/208510432-acdded5b-d817-4e25-bc94-d76d6c718fc0.png)
+
+
 ![image](https://user-images.githubusercontent.com/4015406/208506185-b26f6750-2009-4f7f-ba8d-a73ef25528eb.png)
 
 Hay una ola estàtica muy chula
