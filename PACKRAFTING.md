@@ -24,11 +24,12 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Club Salter: http://www.salt-ter.net/
 - C.D los Gancheros: https://www.facebook.com/losgancheros/?locale=es_ES
 
-# Rutes, libros y Blogs
+# Rutes, libros y Blogs, mantenimiento
 
 - Blog de Mekong: https://www.mekongpackraft.com/en/blog/
 - Rutas Francia | guide-riviere-nature-en-kayak-gonflable | https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 - Llibre sobre packraft: https://www.mekongpackraft.com/en/product/the-packraft-handbook-guide/
+- Matenimiento T-ZIP: https://www.youtube.com/watch?v=CklzoXBIisU
 
 # Caudales
 
