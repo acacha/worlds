@@ -4,11 +4,15 @@
 - Blog de Carlos Izquierdo: https://lavidaessilbar.blogspot.com/
 - Packrafting Spain (Luis Mora): http://packraftingspain.com/
 - Rowild Packraft (Luis Mora): https://rowildpackraft.com/?lang=es
+- Jul Galende | Instagram https://www.instagram.com/jul.galende/
 - Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/
 - Ernesto Pastor: Creador de montañas vacias y packrafter Mekong: https://montanasvacias.com/
 - Curro Gonzalez: Sobre escalada: https://sobreescalada.com/
 - Sam i Dolça, packrafter Mekong: https://pinzat.com/ | https://www.instagram.com/pinzat/
 - David Casalprim | https://espaibici.com/ | Canal Youtube: https://www.youtube.com/user/espaibici
+- Porris: https://www.instagram.com/porrisporris/
+- Abraham Bartolome | Instagram: https://www.instagram.com/elpequenyosaltatapias/ | Youtube : https://www.youtube.com/channel/UC2iUNmy2oQztwcfoRKJ41Og
+- Dirk6aa1 | Instagram: https://www.instagram.com/Dirk6aa1/
 
 # Licencias y seguros
 
