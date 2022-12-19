@@ -11,6 +11,8 @@
 # Rutes, libros y Blogs
 
 - Blog de Mekong: https://www.mekongpackraft.com/en/blog/
+- Rutas Francia | guide-riviere-nature-en-kayak-gonflable | https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
+- Llibre sobre packraft: https://www.mekongpackraft.com/en/product/the-packraft-handbook-guide/
 
 # Caudales
 
@@ -91,9 +93,14 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
 # FRANCE
 
+Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
+
 ## Rutas septiembre 2022
 
-https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
+- Riu le Guifre | Gorges Tines | https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
+
+
+# Le guifre
 
 # ARIEGE
 
