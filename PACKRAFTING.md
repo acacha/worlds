@@ -143,14 +143,19 @@ Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.me
 
 ## Rutas julio 2022
 
+![image](https://user-images.githubusercontent.com/4015406/208493303-9591164d-1176-4170-9c15-d6f46e2a40a1.png)
 
 
 ## Rutas septiembre 2022
 
-- Riu le Guifre | Gorges Tines | https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
+### Riu le Guifre | Gorges Tines 
+
+- Wikiloc: https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
 
 
-# Le guifre
+# Le guifre | Gorges Tines 
+
+- Wikiloc: https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
 
 # ARIEGE
 
