@@ -7,7 +7,7 @@ Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.co
 
 ## De campo hasta la silla
 
-Tramo de 6,4 km.
+Tramo de 6,4 km. Clase III
 
 ![image](https://user-images.githubusercontent.com/4015406/208509714-8cb216b3-b41e-4069-b2f1-2a7cf6c81bcf.png)
 
