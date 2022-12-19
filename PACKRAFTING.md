@@ -13,7 +13,8 @@
 - Porris: https://www.instagram.com/porrisporris/
 - Abraham Bartolome | Instagram: https://www.instagram.com/elpequenyosaltatapias/ | Youtube : https://www.youtube.com/channel/UC2iUNmy2oQztwcfoRKJ41Og
 - Dirk6aa1 | Instagram: https://www.instagram.com/Dirk6aa1/
-
+- Ver también: http://packraftingspain.com/blog/
+- 
 # Licencias y seguros
 
 - Club Salter: http://www.salt-ter.net/
@@ -37,7 +38,10 @@
 # Wikiloc
 
 - Wikiloc acacha: https://es.wikiloc.com/wikiloc/user.do?id=82727
-- Listas packraft: 
+
+Listas packraft: 
+- https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
+- https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
 
 
 # Catalunya
