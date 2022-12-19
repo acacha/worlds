@@ -7,10 +7,28 @@ Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.co
 
 ## De campo hasta la silla
 
+Tramo de 6,4 km.
+
+Wikiloc: 
+
 ![image](https://user-images.githubusercontent.com/4015406/208506185-b26f6750-2009-4f7f-ba8d-a73ef25528eb.png)
 
+El tramo más fàcil. No lo hice en bikerafting (deje la bici atada al final o volvi caminando?). se podria llegar a hacer con bici.
 
-El tramo más fàcil. No lo hice en bikerafting (deje la bici atada al final o volvi caminando?). se podria llegar a hacer con bici
+Photos i vídeos Google (scouting)
+
+https://photos.google.com/share/AF1QipMM_2oQrvy2lTQB_I03uuCy3CHENtgfzEXGO1Xorc5FLnr8xrL4nyLFAVRIOwQHsA?key=SmFqR0I5ZDA4RWh6YVgwNnY3WmlSRmQ1Y2FobEZR
+
+Salida en playa del campo:
+
+![image](https://user-images.githubusercontent.com/4015406/208509568-04e177d4-86c1-46da-8da0-244e166fd352.png)
+
+
+El packraft preparado para ser recogido en la silla:
+
+![image](https://user-images.githubusercontent.com/4015406/208509350-e6afc3b1-5892-4357-a959-d91281dddd5e.png)
+
+Podeis observar hay una estructura con un cable para pasar al otro lado (creo la utilizavan los pescadores)
 
 # Fotos
 
