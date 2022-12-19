@@ -3,6 +3,10 @@
 
 Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.com/saihebro/index.php?url=/datos/ficha/estacion:A258
 
+# Fotos
+
+https://photos.app.goo.gl/FFW3uJNbNQh3e5e78
+
 # Mapa Google maps
 
 https://www.google.com/maps/d/edit?mid=15CDuvLJDn_a_fUiLHEKZYq6h-toUosQ&usp=sharing
