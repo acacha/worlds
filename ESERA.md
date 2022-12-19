@@ -11,7 +11,8 @@ Tramo de 6,4 km. Clase III
 
 ![image](https://user-images.githubusercontent.com/4015406/208509714-8cb216b3-b41e-4069-b2f1-2a7cf6c81bcf.png)
 
-Wikiloc: https://es.wikiloc.com/wikiloc/edit.do?event=info&id=121576342&NEXTHOP=aHR0cHM6Ly9lcy53aWtpbG9jLmNvbS9ydXRhcy1rYXlhYy9wYWNrcmFmdC1wbGF5YS1kZS1jYW1wby1sYS1zaWxsYS0xMjE1NzYzNDI=
+Wikiloc: [https://es.wikiloc.com/wikiloc/edit.do?event=info&id=121576342&NEXTHOP=aHR0cHM6L
+y9lcy53aWtpbG9jLmNvbS9ydXRhcy1rYXlhYy9wYWNrcmFmdC1wbGF5YS1kZS1jYW1wby1sYS1zaWxsYS0xMjE1NzYzNDI=](https://es.wikiloc.com/rutas-kayac/packraft-playa-de-campo-la-silla-121576342)
 
 Nivel con que lo hice según river app:
 
