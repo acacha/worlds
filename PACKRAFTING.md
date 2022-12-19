@@ -53,6 +53,12 @@ Listas packraft:
 
 # Catalunya
 
+## Riu Noguera Pallaresa
+
+### Pont de baena - Congost de Collegats - Font de la Figuereta
+
+https://es.wikiloc.com/rutas-kayac/packraft-riu-noguera-pallaresa-pont-de-baena-congost-de-collegats-font-de-la-figuereta-121577575
+
 ## Riu Ebre
 
 Todo los tramos són ideales para hacer en bikerafting y/o solitario y utilizar la bici como medio de transporte para ir o volver. Tambíen es un buen rio para los dias de viento y sacar la vela.
