@@ -3,6 +3,15 @@
 
 Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.com/saihebro/index.php?url=/datos/ficha/estacion:A258
 
+# Tramos
+
+## De campo hasta la silla
+
+![image](https://user-images.githubusercontent.com/4015406/208506185-b26f6750-2009-4f7f-ba8d-a73ef25528eb.png)
+
+
+El tramo más fàcil. No lo hice en bikerafting (deje la bici atada al final o volvi caminando?). se podria llegar a hacer con bici
+
 # Fotos
 
 https://photos.app.goo.gl/FFW3uJNbNQh3e5e78
