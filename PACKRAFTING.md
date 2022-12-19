@@ -5,6 +5,7 @@
 - Packrafting Spain (Luis Mora): http://packraftingspain.com/
 - Rowild Packraft (Luis Mora): https://rowildpackraft.com/?lang=es
 - Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/
+- Ernesto Pastor: Creador de montañas vacias y packrafter Mekong: https://montanasvacias.com/
 - Curro Gonzalez: Sobre escalada: https://sobreescalada.com/
 
 # Rutes, libros y Blogs
@@ -19,7 +20,8 @@
 
 # Wikiloc
 
-- 
+- Wikiloc acacha: https://es.wikiloc.com/wikiloc/user.do?id=82727
+- Listas packraft: 
 
 
 # Catalunya
@@ -83,8 +85,15 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
 
+# Suiza
+
+
 
 # FRANCE
+
+## Rutas septiembre 2022
+
+https://es.wikiloc.com/rutas-kayac/packraft-le-guifre-an-gorges-de-tignes-september-2022-121121607
 
 # ARIEGE
 
