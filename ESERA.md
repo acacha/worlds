@@ -9,11 +9,15 @@ Es pot consultar a river app i també a la web de la CHE: http://www.saihebro.co
 
 Tramo de 6,4 km.
 
-Wikiloc: 
+![image](https://user-images.githubusercontent.com/4015406/208509714-8cb216b3-b41e-4069-b2f1-2a7cf6c81bcf.png)
+
+Wikiloc: https://es.wikiloc.com/wikiloc/edit.do?event=info&id=121576342&NEXTHOP=aHR0cHM6Ly9lcy53aWtpbG9jLmNvbS9ydXRhcy1rYXlhYy9wYWNrcmFmdC1wbGF5YS1kZS1jYW1wby1sYS1zaWxsYS0xMjE1NzYzNDI=
 
 ![image](https://user-images.githubusercontent.com/4015406/208506185-b26f6750-2009-4f7f-ba8d-a73ef25528eb.png)
 
-El tramo más fàcil. No lo hice en bikerafting (deje la bici atada al final o volvi caminando?). se podria llegar a hacer con bici.
+Hay una ola estàtica muy chula
+
+El tramo más fàcil. No lo hice en bikerafting (volvi caminando?). Se podria llegar a hacer con bici.
 
 Photos i vídeos Google (scouting)
 
