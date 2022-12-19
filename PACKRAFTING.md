@@ -17,6 +17,7 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Porris: https://www.instagram.com/porrisporris/
 - Abraham Bartolome | Instagram: https://www.instagram.com/elpequenyosaltatapias/ | Youtube : https://www.youtube.com/channel/UC2iUNmy2oQztwcfoRKJ41Og
 - Dirk6aa1 | Instagram: https://www.instagram.com/Dirk6aa1/
+- Josep Vilella: http://instagram.com/josepvilella
 - Montsec bikepack looping (Rokiluco | http://www.rokiluco.com/), packraft decathlon: http://montsecloop.com/ | https://www.instagram.com/montsecbikepackingloop/
 - Ver también: http://packraftingspain.com/blog/
 
