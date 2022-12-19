@@ -1,39 +1,32 @@
+# Amigos
+
+- Cèsar Pasadas (aka Iteribai): Instagram: https://www.instagram.com/iteribai/ | Canal Youtube: https://www.youtube.com/@iteribai
+- Blog de Carlos Izquierdo: https://lavidaessilbar.blogspot.com/
+- Packrafting Spain (Luis Mora): http://packraftingspain.com/
+- Rowild Packraft (Luis Mora): https://rowildpackraft.com/?lang=es
+- Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/
+- Curro Gonzalez: Sobre escalada: https://sobreescalada.com/
+
+# Rutes, libros y Blogs
+
+- Blog de Mekong: https://www.mekongpackraft.com/en/blog/
+
 # Caudales
 
 - https://caudales-352d9.firebaseapp.com/map/40.092201380788346/-0.6246796879504135/11
 - https://myfishingmaps.com/mapas-pesca/estaciones-de-aforo-de-la-che/
 - River app: https://www.riverapp.net/en
 
-# Comunitat Valenciana
+# Wikiloc
 
-- [Riu Millars/Mijares]()
-- [Cabriel
-](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
-
-# Aragó
-
-## Riu Esera
-
-https://github.com/acacha/worlds/blob/main/ESERA.md
-
-## Riu Gállego
+- 
 
 
-# Montenegro
+# Catalunya
 
-https://www.youtube.com/watch?v=-IWsPbu5RfY
+## Riu Ebre
 
-# France
-
-[PACKRAFTING France
-](https://github.com/acacha/worlds/blob/main/PACKRAFTING_FRANCE.md)
-
-# Riu Cabriel
-
-[Cabriel
-](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
-
-# Riu Segre
+## Riu Segre
 
 
 https://drive.google.com/file/d/1jhSJuF_9CtA2LyOEd6kHX8csAXfTDydm/view?usp=sharing
@@ -54,17 +47,42 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 - Fotos: https://photos.app.goo.gl/MXNSpkMp9P69ewjz5
 - Tram final Seròs - Aiguabarreig: https://ca.wikiloc.com/rutes-kaiac/packrafting-riu-segre-seros-aiguabarreig-100606252
 
+# Comunitat Valenciana
+
+- [Riu Millars/Mijares]()
+- [Cabriel
+](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
+- https://ca.wikiloc.com/rutes-btt/bikerafting-cofrentes-32314669
+
+## Riu Cabriel
+
+[Cabriel
+](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
+- https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
+
+# Aragó
+
+## Riu Esera
+
+https://github.com/acacha/worlds/blob/main/ESERA.md
+
+## Riu Gállego
+
+
+# Montenegro
+
+https://www.youtube.com/watch?v=-IWsPbu5RfY
+
+# France
+
+[PACKRAFTING France
+](https://github.com/acacha/worlds/blob/main/PACKRAFTING_FRANCE.md)
+
 # Cañon del sil
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
-# VALENCIA
 
-https://ca.wikiloc.com/rutes-btt/bikerafting-cofrentes-32314669
-
-## RIU CABRIEL
-
-https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
 
 # FRANCE
 
