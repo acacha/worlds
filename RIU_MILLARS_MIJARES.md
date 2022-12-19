@@ -19,6 +19,11 @@ Ver también: https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
 Wikiloc: https://ca.wikiloc.com/rutes-kaiac/packrafting-tramo-caos-cola-pantano-pobla-arenoso-121566826
 
+
+![image](https://user-images.githubusercontent.com/4015406/208478912-c4188a06-9270-4def-93f6-71cbe5a27c0b.png)
+
+
+
 ## Fotos
 
 Totes: https://photos.app.goo.gl/zSyjb2tiBSzVRzXo7
