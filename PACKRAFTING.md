@@ -70,6 +70,9 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 - Fotos: https://photos.app.goo.gl/MXNSpkMp9P69ewjz5
 - Tram final Seròs - Aiguabarreig: https://ca.wikiloc.com/rutes-kaiac/packrafting-riu-segre-seros-aiguabarreig-100606252
 
+# Teruel
+- [Riu Millars/Mijares](https://github.com/acacha/worlds/blob/main/RIU_MILLARS_MIJARES.md)
+
 # Comunitat Valenciana
 
 - [Riu Millars/Mijares](https://github.com/acacha/worlds/blob/main/RIU_MILLARS_MIJARES.md)
