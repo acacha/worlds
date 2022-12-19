@@ -53,7 +53,11 @@ Listas packraft:
 
 ## Riu Ebre
 
-TODO
+Todo los tramos són ideales para hacer en bikerafting y/o solitario y utilizar la bici como medio de transporte para ir o volver. Tambíen es un buen rio para los dias de viento y sacar la vela.
+
+## Xerta - Tortosa
+
+## Tivenys - Tortosa
 
 ## Riu Segre
 
@@ -63,7 +67,7 @@ https://1library.co/document/y6p80lgq-navegaci%C3%B3-pirag%C3%BCisme-fluvials-ca
 
 https://github.com/acacha/worlds/blob/main/3353607.pdf.pdf
 
-### Bikepacking
+### Bikepacking | Bikerafting
 
 https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarreig-101057610
 
@@ -124,6 +128,10 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
 
 # Suiza
+
+## Bikerafting amb Packraft- Thun Bern i tornada per la via verda
+
+https://ca.wikiloc.com/rutes-kaiac/bikerafting-amb-packraft-thun-bern-i-tornada-per-la-via-verda-121122437
 
 
 # FRANCE
