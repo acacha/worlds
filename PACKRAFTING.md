@@ -41,8 +41,9 @@
 
 ## Riu Ebre
 
-## Riu Segre
+TODO
 
+## Riu Segre
 
 https://drive.google.com/file/d/1jhSJuF_9CtA2LyOEd6kHX8csAXfTDydm/view?usp=sharing
 
@@ -50,12 +51,12 @@ https://1library.co/document/y6p80lgq-navegaci%C3%B3-pirag%C3%BCisme-fluvials-ca
 
 https://github.com/acacha/worlds/blob/main/3353607.pdf.pdf
 
-## Bikepacking
+### Bikepacking
 
 https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarreig-101057610
 
 
-# Tram final Seròs - Aiguabarreig
+#### Tram final Seròs - Aiguabarreig
  
  ![image](https://user-images.githubusercontent.com/4015406/164222700-33466fab-39e5-4cd7-b995-2b64d647ee80.png)
 - Instagram: https://www.instagram.com/p/CcflCDQskGF/?utm_source=ig_web_copy_link
@@ -68,6 +69,10 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 - [Cabriel
 ](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
 - https://ca.wikiloc.com/rutes-btt/bikerafting-cofrentes-32314669
+
+## Rio Mijares
+
+- [Riu Millars/Mijares]()
 
 ## Riu Cabriel
 
@@ -106,10 +111,13 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 # Suiza
 
 
-
 # FRANCE
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
+
+## Rutas julio 2022
+
+
 
 ## Rutas septiembre 2022
 
