@@ -131,7 +131,9 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
 ## Bikerafting amb Packraft- Thun Bern i tornada per la via verda
 
-https://ca.wikiloc.com/rutes-kaiac/bikerafting-amb-packraft-thun-bern-i-tornada-per-la-via-verda-121122437
+Notas: https://gist.github.com/acacha/022c77881d1181045ca4d549ba1e0078
+
+Wikiloc: https://ca.wikiloc.com/rutes-kaiac/bikerafting-amb-packraft-thun-bern-i-tornada-per-la-via-verda-121122437
 
 
 # FRANCE
