@@ -11,6 +11,11 @@ https://photos.app.goo.gl/FFW3uJNbNQh3e5e78
 
 https://www.google.com/maps/d/edit?mid=15CDuvLJDn_a_fUiLHEKZYq6h-toUosQ&usp=sharing
 
+# Mapas de tramos se pueden ver en los paneles informativos al lado de la carretera
+
+Albun de fotos Google: https://photos.app.goo.gl/GH2Y1G87VtV2VLnf7
+
+
 # Album de fotos
 
 Només hi ha fotos del tram de la silla, l'altre vaig estar molt ocupat navegant ;-)
