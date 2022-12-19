@@ -46,3 +46,4 @@ Recursos:
 - https://lavidaessilbar.blogspot.com/
 - https://vimeo.com/47936610
 - https://www.youtube.com/watch?v=c2aVzN8PmME
+- https://es.wikiloc.com/rutas-kayac/travesia-rio-cabriel-villatoya-casas-del-rio-16984301
