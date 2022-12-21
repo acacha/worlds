@@ -156,10 +156,23 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 
+
+### Averyron - Sant Antonin
+
+Es pot combinar amb la via ferrata de Sant Antonin, curta però amb molt bones vistes i una Tirolina molt guapa!
+
+Més info: https://gist.github.com/acacha/0d836c0c7b456b2c569706f04cf22ace
+
 ## Rutas julio 2022
 
 ![image](https://user-images.githubusercontent.com/4015406/208493303-9591164d-1176-4170-9c15-d6f46e2a40a1.png)
 
+### Averyron - Sant Antonin
+
+Es pot combinar amb la via ferrata de Sant Antonin, curta però amb molt bones vistes i una Tirolina molt guapa!
+
+
+Més info: https://gist.github.com/acacha/0d836c0c7b456b2c569706f04cf22ace
 
 ## Rutas septiembre 2022
 
