@@ -163,6 +163,14 @@ Es pot combinar amb la via ferrata de Sant Antonin, curta però amb molt bones v
 
 Més info: https://gist.github.com/acacha/0d836c0c7b456b2c569706f04cf22ace
 
+### Riu Vezere
+
+https://gist.github.com/acacha/556fac50cbbe9be11db8b2537a56e5ad
+
+### Riu Viena (Vienne). Llemotges
+
+https://gist.github.com/acacha/960e327712199424f7fe3bdb0d640d00
+
 ## Rutas julio 2022
 
 ![image](https://user-images.githubusercontent.com/4015406/208493303-9591164d-1176-4170-9c15-d6f46e2a40a1.png)
@@ -170,6 +178,14 @@ Més info: https://gist.github.com/acacha/0d836c0c7b456b2c569706f04cf22ace
 ### Averyron - Sant Antonin
 
 Es pot combinar amb la via ferrata de Sant Antonin, curta però amb molt bones vistes i una Tirolina molt guapa!
+
+### Riu Vezere
+
+https://gist.github.com/acacha/556fac50cbbe9be11db8b2537a56e5ad
+
+### Riu Viena (Vienne). Llemotges
+
+https://gist.github.com/acacha/960e327712199424f7fe3bdb0d640d00
 
 
 Més info: https://gist.github.com/acacha/0d836c0c7b456b2c569706f04cf22ace
