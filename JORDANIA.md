@@ -1,3 +1,7 @@
+# Israel i Jordania
+
+https://dontworrybecamper.blog/2018/08/23/ruta-21-dias-en-israel-jordania-y-palestina/
+
 # VOLS 
 
 RyanAir opera a Jordania
