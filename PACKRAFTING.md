@@ -114,6 +114,17 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 ](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
 - https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
 
+# Riu Turia
+
+**Turia  7.5 km**
+3/01/22 Input playeta - Puente Marquez  7.5 km 6,5mq/s  WW II (III presa antic) , tapones de arboles,bonito recorido
+
+**Turia Canyon  3 km**
+
+https://goo.gl/maps/8LnicCDLEBCoWcmz7
+
+1/01/22 Bonito canyon ,salvaje .La Caballera - Piscifactoría 3km WW II (III) 6.5 mq/s ,Coche 3 km
+
 # Aragó
 
 ## Congost del Entremón
