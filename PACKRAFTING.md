@@ -170,6 +170,14 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 
+## Allier
+
+**Allier 9km**
+- 18.07.21 Canyon Du Monistrol . Monistrol - Prades WW II - III (2x IV) con Jens y Joscha ,yo con PR
+
+**Allier 17 km x2**
+16+20.07.21 Chapeauroux -Alleyras camping , bonito canyon boscoso- salvaje , WW II- III ,1ª con Jens y Joscha , 2ª mas Noa Anne
+
 ## Herault
 
 24.10.20 Valrac - Pont Romanic D1 WW I-II , walk 6,5 km , Packraft  , HW 70mq (normal 20 )
