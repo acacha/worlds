@@ -170,6 +170,9 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 
+## Orb
+
+Semana Santa 2022  Bedarieux - Beziers  5dias    hasta Colombieres 7m3/s ,agua justo, WW II algunas presas con porteo corto ,despues del rio Jaur 21 m3/s, desde Tarrasac WW II-III, rápidos de Reals WW III-IV y hasta Beziers soft water, presas con tobogan entre Colombieres y Reals ,vuelta con tren
 
 ### Averyron - Sant Antonin
 
