@@ -110,6 +110,9 @@ https://ca.wikiloc.com/rutes-kaiac/bikepacking-segre-torres-de-segre-aiguabarrei
 
 ## Riu Cabriel
 
+Cabriel 44 km
+27/12 al 30/12/22  Aldea de los Carceles - Villatoya , 4 jornadas de 5,9,14 y 16 km , Caudal 8.5 a 9.5 mq/seg , WW I - II+ , algún tapón de arboles , Orillas de mal salir por vegetación , pocos sitios buenos de camping , Orilla Valencia peor con valla , agua limpio , sin afluentes y fuentes, tranquilidad total , sitios descartadas : Noria , Sector sorpresa WW II+ , Ventanas de Cabriel
+
 [Cabriel
 ](https://github.com/acacha/worlds/blob/main/CABRIEL.md)
 - https://ca.wikiloc.com/rutes-kaiac/packrafting-cabriel-river-32020025
