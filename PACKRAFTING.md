@@ -79,7 +79,11 @@ https://github.com/acacha/worlds/blob/main/3353607.pdf.pdf
 
 ![image](https://user-images.githubusercontent.com/4015406/208499176-4a5e216a-48dd-4b33-b57b-af0f9e39cc16.png)
 
-Informació proporcionada per Josep Vilella i Dirk6aa1
+Informació proporcionada per Josep Vilella i Dirk6aa1. Mapa de dirk6aa1
+
+19/06/2021(Packraft) Adrall - Organyà con 31 mq/s       (min 20 mq/s,opt. 35 mq/s),agua marón tras lluvias, WW II-III, bonito Congost Tresponts, sin dificultades, watch out -  hay 3 presas artificiales donde encontrar la mejor bajada, sobre todo la presa antes de Organyà (porteo malo por OI) ,vuelta en taxi.
+
+5/05/22   Adrall - Organyá  40 m3/s, WWII-III muy buen caudal , big volume , ojo con las dos presas (Karting y antes de Organya ) caudal optimo entre 30 y 40+ (con Josep en PR)
 
 
 ### Bikepacking | Bikerafting
