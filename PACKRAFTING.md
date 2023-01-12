@@ -273,6 +273,16 @@ Molt interessant la web de:
 
 Llocs:
 
+## Gales
+
+### Llangollen River Dee
+
+https://gist.github.com/acacha/4bfc8b54cbb3b4a8b07c90ae27d0bb31
+
+### Bikerafting River Dee
+
+https://gist.github.com/acacha/60618653fa5deba06ba17465020216a9
+
 ## River Medway
 
 The facilities provided by the Environment Agency on the River Medway make it one of the best rivers for paddle sports in the south of England, setting a gold standard for others to follow. There's a dedicated Medway Canoe Trail website (http://www.medwaycanoetrail.co.uk/), slipways at the start and end of the trail, free camping (without facilities) at Oak Weir Lock and Stoneham Disused Lock, a good campsite at Allington Lock, a shower and toilet block at Yalding, low level landing stages at all the locks making them easy to portage if required and uniquely a series of canoe passes/chutes which make it easy to travel downstream avoiding most of the locks entirely.
