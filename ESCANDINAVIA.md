@@ -28,3 +28,12 @@ Diverses opcions
 ![image](https://user-images.githubusercontent.com/4015406/212662241-beefeb02-b386-417e-bf04-9f7de313042a.png)
 
 ![image](https://user-images.githubusercontent.com/4015406/212662310-71e72d40-4788-4690-9a18-a4c4898ce448.png)
+
+# Packraft / Whitewater
+
+Voss: https://www.visitnorway.es/que-ver-en-noruega/noruega-de-los-fiordos/voss/
+
+https://www.visitnorway.es/que-hacer-en-noruega/al-aire-libre/canoa-kayak/
+
+¿Te atreves con un desafío? Los adictos a la adrenalina encontrarán pocos lugares con tanto que ofrecer como Voss, conocida como la capital de las aventuras en Noruega. Allí, los rios son una especie de parques de atracciones en plena naturaleza, con cañones, rápidos, y un sinfín de curvas. Agencias locales ofrecen accesos seguros a los muchos atractivos de estos ríos. Otros de los destinos más visitados para hacer kayak en rápidos son el río Sjoa, que discurre entre los parques nacionales de Jotunheimen y Rondane, y el río Driva, en Trøndelag.
+
