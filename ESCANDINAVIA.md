@@ -4,6 +4,8 @@ Tromso
 
 ![image](https://user-images.githubusercontent.com/4015406/212685516-a8d5b78a-de09-4ffa-a656-ff3590322d99.png)
 
+![image](https://user-images.githubusercontent.com/4015406/212686126-cd73c9fe-5dfc-430a-a9d3-8383fbcecba5.png)
+
 
 # Trajecte
 
