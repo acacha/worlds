@@ -7,8 +7,11 @@ Diverses opcions
 - Montelimar i frontera frança Suissa
 - Evitar Suïsa o pagar autopistes
 - Frankfurt / Hannover, Hamburg
-- 
+
 # Nordkapp, Noruega
+
+![image](https://user-images.githubusercontent.com/4015406/212665961-2f802e24-4ceb-47f5-aa17-73757725b9d7.png)
+
 
 ![image](https://user-images.githubusercontent.com/4015406/212662241-beefeb02-b386-417e-bf04-9f7de313042a.png)
 
