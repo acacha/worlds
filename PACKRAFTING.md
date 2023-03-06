@@ -268,12 +268,22 @@ https://canoe-drome.com/HTML/fr/parcours.html
 
 # ANGLATERRA
 
+Hi ha mapes
+
+![image](https://user-images.githubusercontent.com/4015406/223081755-647f9f37-6a61-469b-a8d9-eba692377863.png)
+
+
+
+
 Molt interessant la web de:
 - http://packrafting.patrickrevell.me.uk/
 
 Llocs:
 
 ## Gales
+
+![image](https://user-images.githubusercontent.com/4015406/223081946-e2c7b4d3-0753-48c8-bb31-f321a12d19cc.png)
+
 
 ### Llangollen River Dee
 
