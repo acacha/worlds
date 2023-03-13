@@ -3,6 +3,11 @@
 
 - Embalse Contreras - Puente Vadocañas: https://ca.wikiloc.com/rutes-senderisme/embalse-contreras-puentre-de-vadocanas-103674112
 
+# Nivel del Agua / Aforos
+
+http://saih.chj.es/chj/saih/glayer?t=a
+
+
 # Tramos
 
 ## Embalse contreras - Puente de Vadocañas
