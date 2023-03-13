@@ -31,7 +31,12 @@ Vídeo: https://www.youtube.com/watch?v=e7pmjRh3XRc
 
 Mapa Google:
 
-https://www.google.com/maps/d/u/0/viewer?mid=1wRnCM5T_Gn6n85lvF4fZiXZV9uU&ll=39.41537488392469%2C-1.328444480895996&z=12
+- https://www.google.com/maps/d/u/0/viewer?mid=1wRnCM5T_Gn6n85lvF4fZiXZV9uU&ll=39.41537488392469%2C-1.328444480895996&z=12
+- Copia: https://www.google.com/maps/d/u/0/edit?mid=1nf2eZmVa2v55xHs6pNmlfZw5OMeUR10&ll=39.41525373790608%2C-1.328444480895996&z=12
+
+![image](https://user-images.githubusercontent.com/4015406/224766867-764978c7-bc97-4d48-810b-f45b85a67232.png)
+![image](https://user-images.githubusercontent.com/4015406/224767034-9e30b112-4702-476c-bc14-f9f5da6c9647.png)
+
 
 Passos a tenir en compte:
 
