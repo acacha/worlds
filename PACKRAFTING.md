@@ -336,3 +336,9 @@ A four day packrafting trip down the upper River Thames/Isis to Oxford. Start wi
 
 Recursos:
 - https://osmaps.ordnancesurvey.co.uk/route/3299175/Packrafting-on-the-upper-River-Thames-Isis-Highworth-to-Oxford-4-day-camping-trip
+
+# Albania
+
+## Vjosa River
+
+https://gist.github.com/acacha/8607e2339c3befefc5d83a77ee5676d9
