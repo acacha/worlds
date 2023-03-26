@@ -23,3 +23,15 @@ https://www.elviajedetuvida.es/jordania-por-libre/
 # Bikepacking
 
 https://bikepacking.com/routes/jordan-bike-trail/
+
+## Rutas wikiloc
+
+https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=820102
+
+## Persones han fet la ruta
+
+Raimon Escapa: https://ca.wikiloc.com/wikiloc/user.do?id=352330&event=stats | https://www.bicicletaimanta.cat/
+
+## Fotos
+
+https://www.flickr.com/photos/escapa/49801989347/in/photostream/
