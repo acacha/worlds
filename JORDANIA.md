@@ -6,6 +6,10 @@ https://dontworrybecamper.blog/2018/08/23/ruta-21-dias-en-israel-jordania-y-pale
 
 RyanAir opera a Jordania
 
+## WizzAir
+
+![image](https://user-images.githubusercontent.com/4015406/227760544-f4b10704-d441-4f3c-909b-d770ad33c074.png)
+
 # jordan Pass
 
 Inclou el visat i accés a Petra: https://www.elviajedetuvida.es/jordania-por-libre/
