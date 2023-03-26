@@ -21,10 +21,12 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Montsec bikepack looping (Rokiluco | http://www.rokiluco.com/), packraft decathlon: http://montsecloop.com/ | https://www.instagram.com/montsecbikepackingloop/
 - Ver también: http://packraftingspain.com/blog/
 
-# Licencias y seguros
+# Licencias y seguros | Clubs
 
 - Club Salter: http://www.salt-ter.net/
 - C.D los Gancheros: https://www.facebook.com/losgancheros/?locale=es_ES
+- https://www.instagram.com/nauticmigsegre/ | https://www.facebook.com/cnmigsegre/ 
+- https://www.instagram.com/club_nautic_pobla/
 
 # Rutes, libros y Blogs, mantenimiento
 
@@ -74,6 +76,17 @@ https://drive.google.com/file/d/1jhSJuF_9CtA2LyOEd6kHX8csAXfTDydm/view?usp=shari
 https://1library.co/document/y6p80lgq-navegaci%C3%B3-pirag%C3%BCisme-fluvials-catalana-noguera-pallaresa-noguera-ribagor%C3%A7ana.html
 
 https://github.com/acacha/worlds/blob/main/3353607.pdf.pdf
+
+### Ponts. Camp Slalom
+
+Fan pràctiques la gent del club Nautic Mig Segre,
+
+- http://www.cnmigsegre.cat/
+- https://www.facebook.com/cnmigsegre/
+- https://www.instagram.com/nauticmigsegre/
+
+Webcam:
+- https://camp-slalom-ponts.click2stream.com/
 
 ### Congost de 3 ponts
 
