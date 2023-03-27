@@ -16,7 +16,7 @@ https://www.google.com/maps/d/u/0/edit?hl=ca&mid=1KXbPz-tP9gdj4nTKwtYINx1UbguUTp
 
 # Soca Trail
 
-https://www.wikiloc.com/hiking-trails/bivak-pavla-kemperla-86252285
+<iframe src="https://www.google.com/maps/d/u/0/embed?mid=1tEZ_Yu7R4w4eoAGr5rJdBv1JUY9XbDU&ehbc=2E312F" width="640" height="480"></iframe>
 
 ## Llocs per visitar
 
