@@ -355,3 +355,10 @@ Recursos:
 ## Vjosa River
 
 https://gist.github.com/acacha/8607e2339c3befefc5d83a77ee5676d9
+
+# Slovenia
+
+## Soca River
+
+![image](https://user-images.githubusercontent.com/4015406/227994914-831d2e84-a714-4a0f-948b-e16dcf10351a.png)
+
