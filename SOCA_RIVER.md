@@ -14,6 +14,10 @@ https://dovolilnice.dolina-soce.si/
 
 https://www.google.com/maps/d/u/0/edit?hl=ca&mid=1KXbPz-tP9gdj4nTKwtYINx1UbguUTpM&ll=46.33240520074322%2C13.601919704431147&z=15
 
+# Soca Trail
+
+https://www.wikiloc.com/hiking-trails/bivak-pavla-kemperla-86252285
+
 ## Llocs per visitar
 
 - **Velika Korita Soce**, preciosa gorga just abans sortida kayak més amunt del riu Soca
