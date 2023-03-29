@@ -356,6 +356,36 @@ Recursos:
 
 https://gist.github.com/acacha/8607e2339c3befefc5d83a77ee5676d9
 
+## Cañón de Osum | Gran Cañón de Albania
+
+Cerca de Permet, carreteres de 4x4
+
+- https://www.toros-outdoors.de/es/2019/12/14/tiefe-canyons-grosses-kino-von-albanien-nach-griechenland/
+
+## Konitsa | Voidomatis | Frontera Albano Grega | Desfiladero de Vikos
+
+- https://www.toros-outdoors.de/es/2019/12/14/tiefe-canyons-grosses-kino-von-albanien-nach-griechenland/
+
+Konitsa llegamos al Voidomatis, cuyas aguas cristalinas fluyen desde el imponente desfiladero de Vikos.
+
+## Bence desfiladero de Lengarice
+
+Afluent del Vjosa, pot no tenir aigua.
+
+Lengarice te aigues termals!
+
+# Grecia
+
+- https://www.toros-outdoors.de/es/2019/12/14/tiefe-canyons-grosses-kino-von-albanien-nach-griechenland/
+
+Kayak Paradise: Tzoumerka Mountains
+- https://vimeo.com/206548093?embedded=true&source=vimeo_logo&owner=9101526
+
+Llocs:
+- El Vjosa de fet comença a Grecia i mols dels afluents són espectaculars.  En Albania, el Aoos se convierte en el Vjosa, los afluentes han abierto profundos desfiladeros en la roca a lo largo del tiempo.
+- Venetikos y Voidomatis, Arachthos y Kalaritikos. En Albania, el grandioso Cañón de Osum
+- Dios de Arachthos
+- 
 # Slovenia
 
 ## Soca River
