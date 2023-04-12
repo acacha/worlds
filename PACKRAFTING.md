@@ -189,9 +189,15 @@ Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.me
 
 ## Lot
 
+https://www.instagram.com/p/Cqx5AspKqHX/
+
 Dirk Topoguide:
 
 ![image](https://user-images.githubusercontent.com/4015406/231379400-879dc612-3a08-43f8-bf12-982edf704270.png)
+
+## Aveyron
+
+![image](https://user-images.githubusercontent.com/4015406/231381754-c9703409-c4b5-4170-a30d-287e8807b9f7.png)
 
 ## Allier
 
