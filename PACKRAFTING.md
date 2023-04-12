@@ -187,6 +187,12 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 
+## Lot
+
+Dirk Topoguide:
+
+![image](https://user-images.githubusercontent.com/4015406/231379400-879dc612-3a08-43f8-bf12-982edf704270.png)
+
 ## Allier
 
 **Allier 9km**
