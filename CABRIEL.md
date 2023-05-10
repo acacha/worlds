@@ -10,6 +10,11 @@ http://saih.chj.es/chj/saih/glayer?t=a
 
 # Tramos
 
+Mapa de Dirk6a1:
+
+![image](https://github.com/acacha/worlds/assets/4015406/3626b5dc-4f10-45a9-bf56-5227950ed508)
+
+
 ## Embalse contreras - Puente de Vadocañas
 
 ![image](https://user-images.githubusercontent.com/4015406/224764702-439fe31e-8109-470f-903a-b365c56bd420.png)
