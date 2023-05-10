@@ -10,7 +10,7 @@ http://saih.chj.es/chj/saih/glayer?t=a
 
 # Tramos
 
-Mapa de Dirk6a1:
+Mapa de Dirk6aa1:
 
 ![image](https://github.com/acacha/worlds/assets/4015406/3626b5dc-4f10-45a9-bf56-5227950ed508)
 
