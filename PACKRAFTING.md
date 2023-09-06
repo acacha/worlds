@@ -55,8 +55,8 @@ Altres persones interessants:
 - Wikiloc acacha: https://es.wikiloc.com/wikiloc/user.do?id=82727
 
 Listas packraft: 
-- https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
-- https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
+- Rutes packraft: https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
+- Rutes propis: https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=736166
 
 # Catalunya
 
