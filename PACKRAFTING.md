@@ -48,7 +48,8 @@ Altres persones interessants:
 - River app: https://www.riverapp.net/en
 - Jucar: http://saih.chj.es/chj/saih/?f
 - Ebro: http://www.saihebro.com/saihebro/index.php?url=/datos/mapas/tipoestacion:A
-
+- https://whitewater.guide/
+  
 # Wikiloc
 
 - Wikiloc acacha: https://es.wikiloc.com/wikiloc/user.do?id=82727
@@ -57,10 +58,21 @@ Listas packraft:
 - https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
 - https://ca.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=527589
 
-
 # Catalunya
 
 ## Riu Noguera Pallaresa
+
+Ruta wikiloc:
+
+https://ca.wikiloc.com/rutes-kaiac/packrafting-kayak-llavorsi-pont-de-gulleri-santuari-darbolo-monestir-de-santa-maria-de-gerri-ortone-146116606
+
+Noms de ràpids:
+
+![image](https://github.com/acacha/worlds/assets/4015406/b60b4899-268e-46bd-a821-1291f5247528)
+![image](https://github.com/acacha/worlds/assets/4015406/081c56c2-f20e-47c1-b795-67fe2c47815b)
+![image](https://github.com/acacha/worlds/assets/4015406/9f9f86bf-b467-4085-a2d1-bcee9b008773)
+
+
 
 ### Pont de baena - Congost de Collegats - Font de la Figuereta
 
