@@ -40,6 +40,10 @@ Un dels rius més bonics de finlandia. Els ràpids són fàcils la majoria de cl
 
 - Pikkuköngäs esta ple de roques punxants i amb molta aigua hi ha un gran forat després d'un petit salt . El cano es pot portejar
 
+Mapa zona arribada:
+
+![image](https://github.com/acacha/worlds/assets/4015406/d18b406d-090c-4242-b90a-da27441c9ae5)
+
 Blog:
 - https://hutkai.kuvat.fi/blog/109/the-river-oulankajoki-upper-part/
 
