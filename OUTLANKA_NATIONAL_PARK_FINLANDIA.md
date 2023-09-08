@@ -1,6 +1,6 @@
 # Trams
 
-## Inici Karkunhierros - Koutajoki river - Savinajoki
+## Tram 1 - Inici Karkunhierros - Koutajoki river - Savinajoki
 
 Blog:
 
@@ -31,9 +31,21 @@ Totes les fotos:
 
 https://hutkai.kuvat.fi/kuvat/Hiking,+Packrafting+and+Fishing+/Savinajoki/
 
-
 Vídeo:
 - https://youtu.be/5_yzmg1G7nk
+
+# Tram 2 - River Oulankajoki upper part
+
+Un dels rius més bonics de finlandia. Els ràpids són fàcils la majoria de class I fins arribar a al canyo i Pikkuköngäs
+
+- Pikkuköngäs esta ple de roques punxants i amb molta aigua hi ha un gran forat després d'un petit salt . El cano es pot portejar
+
+Blog:
+- https://hutkai.kuvat.fi/blog/109/the-river-oulankajoki-upper-part/
+
+Fotos:
+- https://hutkai.kuvat.fi/kuvat/Hiking,+Packrafting+and+Fishing+/Oulankajoki+The+Upper+Part/
+
 # Mapa oficial
 
 https://julkaisut.metsa.fi/assets/pdf/lp/Esitteet/oulankafineng.pdf
