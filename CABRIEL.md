@@ -21,7 +21,7 @@ Fotos tobogran inicial:
 
 
 
-Mapa de Dirk6aa1:
+Mapa de Dirk6aa1 | https://www.instagram.com/dirk6aa1/:
 
 ![image](https://github.com/acacha/worlds/assets/4015406/3626b5dc-4f10-45a9-bf56-5227950ed508)
 
