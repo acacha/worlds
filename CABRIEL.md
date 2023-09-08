@@ -13,6 +13,14 @@ http://saih.chj.es/chj/saih/glayer?t=a
 
 # Tramos
 
+Fotos tobogran inicial:
+
+![image](https://github.com/acacha/worlds/assets/4015406/1c9ebc2d-ce99-4333-851d-5d23b88c7471)
+
+![image](https://github.com/acacha/worlds/assets/4015406/8ff0a20e-dda1-4592-8496-25d99aaed808)
+
+
+
 Mapa de Dirk6aa1:
 
 ![image](https://github.com/acacha/worlds/assets/4015406/3626b5dc-4f10-45a9-bf56-5227950ed508)
