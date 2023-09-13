@@ -1,3 +1,5 @@
+
+
 Ver también: https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
 Realizado durante el encuentro organizado por Carlos Izquierdo: https://lavidaessilbar.blogspot.com/ | https://lavidaessilbar.blogspot.com/2022/12/packraft-rio-mijares.html
@@ -14,6 +16,22 @@ Realizado durante el encuentro organizado por Carlos Izquierdo: https://lavidaes
 
 
 # Localización
+
+## Tramo rafting comercial - Estrecho Chillapajaros - Montanejos
+
+Fotos https://photos.app.goo.gl/T39JYv7g8mu8RUWh8
+
+### wikiloc
+
+### Ràpidos
+
+Patriarca
+
+Cagarro
+
+Eyaculator
+
+Salto final
 
 ## Tramo Invernalia
 
