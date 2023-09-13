@@ -13,15 +13,20 @@ Realizado durante el encuentro organizado por Carlos Izquierdo: https://lavidaes
 - http://saih.chj.es/chj/saih/glayer?t=a
 ![image](https://user-images.githubusercontent.com/4015406/208478689-5cd82e96-7338-439f-a0b1-a68f1c1dc2ec.png)
 
+![image](https://github.com/acacha/worlds/assets/4015406/179cdb44-2637-4322-9cea-d53ee0638f4e)
 
 
 # Localización
 
 ## Tramo rafting comercial - Estrecho Chillapajaros - Montanejos
 
+Realizado setiembre 2023 con nivel:
+
+
+
 Fotos https://photos.app.goo.gl/T39JYv7g8mu8RUWh8
 
-### wikiloc
+### Wikiloc
 
 ### Ràpidos
 
