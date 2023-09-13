@@ -22,7 +22,7 @@ Realizado durante el encuentro organizado por Carlos Izquierdo: https://lavidaes
 
 Realizado setiembre 2023 con nivel:
 
-
+![image](https://github.com/acacha/worlds/assets/4015406/826bd391-5fb9-4716-8a89-05973349c870)
 
 Fotos https://photos.app.goo.gl/T39JYv7g8mu8RUWh8
 
