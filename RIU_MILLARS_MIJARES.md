@@ -28,7 +28,11 @@ Fotos https://photos.app.goo.gl/T39JYv7g8mu8RUWh8
 
 ### Wikiloc
 
+https://es.wikiloc.com/rutas-kayac/mirador-aliviadero-puente-rio-mijares-i-presa-de-cirat-des-de-campos-de-arenoso-146967547
+
 ### Ràpidos
+
+Ver https://es.wikiloc.com/rutas-kayac/mirador-aliviadero-puente-rio-mijares-i-presa-de-cirat-des-de-campos-de-arenoso-146967547
 
 Patriarca
 
