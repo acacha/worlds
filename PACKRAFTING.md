@@ -20,12 +20,23 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Josep Vilella: http://instagram.com/josepvilella
 - Montsec bikepack looping (Rokiluco | http://www.rokiluco.com/), packraft decathlon: http://montsecloop.com/ | https://www.instagram.com/montsecbikepackingloop/
 - Ver también: http://packraftingspain.com/blog/
-
-Altres persones interessants:
-
 - Olen Caj Koskinen: Instagram: [https://www.instagram.com/iteribai/](https://www.instagram.com/caide78/) | Canal Youtube: https://www.youtube.com/channel/UC6o98Y6Le6LTlMRyBwN4L4w | Blog: https://hutkai.kuvat.fi/blog
 - Jacob Kastrup Haagensen | Youtube: https://www.youtube.com/channel/UC3hzLd6VsQUDhcAM4KERNEw | Instagram: https://www.instagram.com/urbanpackrafter/ | Blog: https://www.urbanpackrafter.com/ 
+- Luch Mel : https://thingstolucat.com/packrafthandbook/
+- Kim Saenen: https://www.instagram.com/kim.saenen/ | https://www.instagram.com/veloraft_adventures/ | 
+-   
+# webs i blogs:
+TODO:
+- http://packrafting.blogspot.com/
+- https://thingstolucat.com/2023/10/03/black-canyon/
+- https://thingstolucat.com
 
+# Empreses
+
+
+- https://rowildpackraft.com/
+- https://www.veloraftadventures.be/
+  
 # Licencias y seguros | Clubs
 
 - Club Salter: http://www.salt-ter.net/
