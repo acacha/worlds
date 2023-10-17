@@ -191,10 +191,17 @@ https://github.com/acacha/worlds/blob/main/ESERA.md
 
 - Club deportivo los Gancheros, Alto Tajo | https://www.facebook.com/losgancheros/?locale=es_ES
 
-# Cañon del sil
+## Cañon del sil
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
+# Finlandia
+
+- OULANKA NATIONAL PARK: https://github.com/acacha/worlds/blob/main/OUTLANKA_NATIONAL_PARK_FINLANDIA.md
+
+# Suecia
+
+Packrafting a suecia: https://gist.github.com/acacha/f56324b82b164652ab975d30f7ce0d8b
 
 # Suiza
 
