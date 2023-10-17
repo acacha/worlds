@@ -9,7 +9,7 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Packrafting Spain (Luis Mora): http://packraftingspain.com/
 - Rowild Packraft (Luis Mora): https://rowildpackraft.com/?lang=es
 - Jul Galende | Instagram https://www.instagram.com/jul.galende/
-- Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/
+- Rob Estivill (Soci Mekong): Blog de Mekong: https://www.mekongpackraft.com/en/topo-la-severaisse-entre-bourg-et-villar-loubiere/ | https://www.instagram.com/epicworks.me/ | https://epicworks.me/
 - Ernesto Pastor: Creador de montañas vacias y packrafter Mekong: https://montanasvacias.com/
 - Curro Gonzalez: Sobre escalada: https://sobreescalada.com/
 - Sam i Dolça, packrafter Mekong: https://pinzat.com/ | https://www.instagram.com/pinzat/
