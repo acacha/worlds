@@ -203,6 +203,10 @@ https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
 Packrafting a suecia: https://gist.github.com/acacha/f56324b82b164652ab975d30f7ce0d8b
 
+# Islandia
+
+# Marruecos
+
 # Suiza
 
 ## Bikerafting amb Packraft- Thun Bern i tornada per la via verda
