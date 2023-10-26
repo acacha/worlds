@@ -187,6 +187,10 @@ https://github.com/acacha/worlds/blob/main/ESERA.md
 
 # Resto de España
 
+## Norte de españa
+
+https://gist.github.com/acacha/3d287961da6a82d7f7b3febbc16b01ed
+
 ## Rio Tajo
 
 - Club deportivo los Gancheros, Alto Tajo | https://www.facebook.com/losgancheros/?locale=es_ES
