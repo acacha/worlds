@@ -213,6 +213,8 @@ https://gist.github.com/acacha/5ac6d220f0838091514477385d386382
 
 # Marruecos
 
+https://gist.github.com/acacha/a143dd3399dd0b056b09a48878780242
+
 # Suiza
 
 ## Bikerafting amb Packraft- Thun Bern i tornada per la via verda
