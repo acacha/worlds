@@ -188,6 +188,14 @@ https://goo.gl/maps/8LnicCDLEBCoWcmz7
 
 1/01/22 Bonito canyon ,salvaje .La Caballera - Piscifactoría 3km WW II (III) 6.5 mq/s ,Coche 3 km
 
+# Pirineos
+
+- NORTE ESPAÑA: https://gist.github.com/acacha/3d287961da6a82d7f7b3febbc16b01ed
+
+Guias:
+
+https://github.com/acacha/packrafting
+
 # Aragón
 
 ## Rio Ara
