@@ -192,8 +192,15 @@ https://goo.gl/maps/8LnicCDLEBCoWcmz7
 
 ## Rio Ara
 
+![4d448420-dc07-459c-a971-e0ae3445deba](https://github.com/acacha/worlds/assets/4015406/4b20e180-f17a-4d8c-bcbd-9b4c1f4d59a2)
+![8fcd650b-cca6-4a3d-b9f2-65e1af6134ac](https://github.com/acacha/worlds/assets/4015406/f5347078-6fa9-4d7d-a9a7-b7167bc533c4)
+![ccff608e-e749-4b2a-a782-a8a52cc35131](https://github.com/acacha/worlds/assets/4015406/f9603f9d-7493-4827-9c45-f6f8eaed535f)
+
+
+
 ## Rio Cinca
 
+![99534add-e458-48a4-870a-9ce737e648a1](https://github.com/acacha/worlds/assets/4015406/144bfce8-0369-47b3-a254-1fb1e1439513)
 
 
 ## Congost del Entremón
