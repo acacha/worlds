@@ -23,8 +23,6 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Jacob Kastrup Haagensen | Youtube: https://www.youtube.com/channel/UC3hzLd6VsQUDhcAM4KERNEw | Instagram: https://www.instagram.com/urbanpackrafter/ | Blog: https://www.urbanpackrafter.com/ 
 - Luch Mel : https://thingstolucat.com/packrafthandbook/
 - Kim Saenen: https://www.instagram.com/kim.saenen/ | https://www.instagram.com/veloraft_adventures/
-- Mark Oates | https://markoates.exposure.co/whitewater-packrafting-skills
-- 
 - Ver también: http://packraftingspain.com/blog/
   
 # webs i blogs:
