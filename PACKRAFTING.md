@@ -19,20 +19,35 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - Dirk6aa1 | Instagram: https://www.instagram.com/Dirk6aa1/
 - Josep Vilella: http://instagram.com/josepvilella
 - Montsec bikepack looping (Rokiluco | http://www.rokiluco.com/), packraft decathlon: http://montsecloop.com/ | https://www.instagram.com/montsecbikepackingloop/
-- Ver también: http://packraftingspain.com/blog/
 - Olen Caj Koskinen: Instagram: [https://www.instagram.com/iteribai/](https://www.instagram.com/caide78/) | Canal Youtube: https://www.youtube.com/channel/UC6o98Y6Le6LTlMRyBwN4L4w | Blog: https://hutkai.kuvat.fi/blog
 - Jacob Kastrup Haagensen | Youtube: https://www.youtube.com/channel/UC3hzLd6VsQUDhcAM4KERNEw | Instagram: https://www.instagram.com/urbanpackrafter/ | Blog: https://www.urbanpackrafter.com/ 
 - Luch Mel : https://thingstolucat.com/packrafthandbook/
-- Kim Saenen: https://www.instagram.com/kim.saenen/ | https://www.instagram.com/veloraft_adventures/ | 
--   
+- Kim Saenen: https://www.instagram.com/kim.saenen/ | https://www.instagram.com/veloraft_adventures/
+- Mark Oates | https://markoates.exposure.co/whitewater-packrafting-skills
+- 
+- Ver también: http://packraftingspain.com/blog/
+  
 # webs i blogs:
-TODO:
+
+- https://packraftingspain.com/
 - http://packrafting.blogspot.com/
 - https://thingstolucat.com/2023/10/03/black-canyon/
 - https://thingstolucat.com
+- https://markoates.exposure.co/whitewater-packrafting-skills
 
+# Webs con información de rios:
+
+- https://rivermap.org/map
+- https://www.riverapp.net/en
+- https://whitewater.guide/
+- https://riverzone.eu/
+
+Bases de dades lliures:
+- https://rivermap.org/public/CC-BY-SA-4.0/extract.json
+- https://rivermap.org/reuse.php#RMODBL
+- https://rivermap-org.translate.goog//datenlieferanten.php?_x_tr_sl=de&_x_tr_tl=en&_x_tr_hl=de
+  
 # Empreses
-
 
 - https://rowildpackraft.com/
 - https://www.veloraftadventures.be/
@@ -43,6 +58,7 @@ TODO:
 - C.D los Gancheros: https://www.facebook.com/losgancheros/?locale=es_ES
 - https://www.instagram.com/nauticmigsegre/ | https://www.facebook.com/cnmigsegre/ 
 - https://www.instagram.com/club_nautic_pobla/
+- https://www.facebook.com/EspadaMillars/
 
 # Rutes, libros y Blogs, mantenimiento
 
