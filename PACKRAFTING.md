@@ -33,8 +33,9 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 - https://thingstolucat.com
 - https://markoates.exposure.co/whitewater-packrafting-skills
 
-# Webs con información de rios:
+# Webs con información de rios (topos, descripciones, niveles de agua)
 
+- https://www.eauxvives.org/fr/
 - https://rivermap.org/map
 - https://www.riverapp.net/en
 - https://whitewater.guide/
