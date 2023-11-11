@@ -223,6 +223,10 @@ https://github.com/acacha/worlds/blob/main/ESERA.md
 
 # Resto de España
 
+## Navarra
+
+https://gist.github.com/acacha/79d04efd78d1f3f18913b83e1cb04627
+
 ## Norte de españa
 
 https://gist.github.com/acacha/3d287961da6a82d7f7b3febbc16b01ed
@@ -269,6 +273,10 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 ](https://github.com/acacha/worlds/blob/main/PACKRAFTING_FRANCE.md)
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
+
+## PIRINEOS OCCIDENTALES FRANCESES
+
+https://gist.github.com/acacha/6a5cf84374524d0a6b243d63aaeea463
 
 ## Lot
 
