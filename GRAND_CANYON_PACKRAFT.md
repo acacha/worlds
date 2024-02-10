@@ -4,7 +4,10 @@ Formar un grupo de packrafters para hacer el viaje de nuestras vidas **Bajar el 
 
 https://hutkai.kuvat.fi/blog/92/trip-of-the-life-time/
 
-227 mile: Most people take 14 - 21 days to complete the 227 mile journey from Lee's Ferry to Diamond Creek. If you're doing a private trip you'll need to be at Lee's Ferry the day before you launch to rig your boats. After rigging, you'll row your boats about 100 feet downstream to the boat camp.
+227 mile/365Km: Most people take 14 - 21 days to complete the 227 mile journey from Lee's Ferry to Diamond Creek. If you're doing a private trip you'll need to be at Lee's Ferry the day before you launch to rig your boats. After rigging, you'll row your boats about 100 feet downstream to the boat camp.
+
+![image](https://github.com/acacha/worlds/assets/4015406/10973651-3f4b-440b-bfad-2374013fc01a)
+
 
 Ruta:
 
