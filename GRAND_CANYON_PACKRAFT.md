@@ -10,11 +10,14 @@ Ruta:
 
 12 to 25 Day Noncommercial River Trips: [Lees Ferry](https://www.google.com/maps/place/Lees+Ferry/@36.8657337,-111.5893256,17z/data=!3m1!4b1!4m6!3m5!1s0x87346ebdbe509765:0x1260407afe44ac00!8m2!3d36.8657337!4d-111.5867507!16zL20vMDJ4a2ps?entry=ttu) to [Diamond Creek](https://www.google.com/maps/place/Diamond+Creek+Beach/@35.7651371,-113.3853231,14.82z/data=!4m14!1m7!3m6!1s0x80ccfc0eb69c7917:0x8cdadfc10a6e67d5!2sDiamond+Creek!8m2!3d35.7397324!4d-113.32109!16s%2Fm%2F09gpsbx!3m5!1s0x80ccf8722e5996c7:0x7b64dcbf33b1ea7e!8m2!3d35.7660247!4d-113.3719912!16s%2Fg%2F11h18db06?entry=ttu)https://www.google.com/maps/place/Diamond+Creek+Beach/@35.7651371,-113.3853231,14.82z/data=!4m14!1m7!3m6!1s0x80ccfc0eb69c7917:0x8cdadfc10a6e67d5!2sDiamond+Creek!8m2!3d35.7397324!4d-113.32109!16s%2Fm%2F09gpsbx!3m5!1s0x80ccf8722e5996c7:0x7b64dcbf33b1ea7e!8m2!3d35.7660247!4d-113.3719912!16s%2Fg%2F11h18db06?entry=ttu
 
-
-
 https://www.nps.gov/grca/planyourvisit/overview-lees-ferry-diamond-ck.htm
 
 # lotery
+
+
+# wikiloc
+
+https://ca.wikiloc.com/rutes-rafting/grand-canyon-packrafting-lees-ferry-to-diamond-creek-365km-160739941
 
 # Videos Youtube
 
