@@ -1,3 +1,21 @@
+![image](https://github.com/acacha/worlds/assets/4015406/8a8f0a5e-2620-4092-8527-18e2da0f08df)# Planificació Juny 2024
+
+
+
+![image](https://github.com/acacha/worlds/assets/4015406/69ead875-9c07-4368-80da-7a0f78158d9e)
+
+Hi ha autobus de kuusamo a 
+
+![image](https://github.com/acacha/worlds/assets/4015406/5056d9cc-5a07-4ca6-9b6a-c6968d31887b)
+
+https://www.matkahuolto.fi/
+
+
+Moltes hores de sol!
+
+![image](https://github.com/acacha/worlds/assets/4015406/93d5e077-4f0d-4372-b81c-172286d85aae)
+
+
 # Trams
 
 https://ca.wikiloc.com/wikiloc/user.do?id=82727
