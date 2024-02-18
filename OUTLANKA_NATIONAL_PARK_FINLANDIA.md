@@ -1,5 +1,6 @@
 ![image](https://github.com/acacha/worlds/assets/4015406/8a8f0a5e-2620-4092-8527-18e2da0f08df)# Planificació Juny 2024
 
+![image](https://github.com/acacha/worlds/assets/4015406/a4c8d353-b224-48b2-8070-f56c10a9f6d3)
 
 
 ![image](https://github.com/acacha/worlds/assets/4015406/69ead875-9c07-4368-80da-7a0f78158d9e)
