@@ -2,6 +2,10 @@
 
 Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds](https://www.instagram.com/acacha_worlds_furgo_van/) | Instagram 2: [sergiturbadenas](https://www.instagram.com/sergiturbadenas/) | [Facebook](https://www.facebook.com/acachaworlds?hc_ref=ARRKqSS10jLihopQmgJcOpac_-L-si6uvK1Bp8BlOpq30P9TUscoQ3m5I9sNAulNGjw&fref=nf&__xts__[0]=68.ARA9tLTevqsZpsmzJ56U55vv2RPtlsbg9JQ8-53J99bdgnFFhVfn9-zr5_Xp1-u0Ay5c2_HrMuUak19PbTZZuJQxev8yxCTCJ4lt2KalXJHEzpM25wboWSzoYJ8L6WBwjjnCb6OXYhV8PosQiM1UOCT_zbHseZs88k5hwBySfWSL3JRi8S820JvCSlkZ8ChVAse6_4UzNo3zB0kUKk8IWLoBPp_NwU7snHN52OIOPvRihdVdvCJgW8dM3f_Af4cMnQVI_RlLc6XWXNQ7Q_047GlzjPd6vmI):  | Pèrfil programador: https://acacha.github.io/#/
 
+# Calendario
+
+https://rebrand.ly/packrafting_calendar
+
 # Amigos del packraft
 
 - Cèsar Pasadas (aka Iteribai): Instagram: https://www.instagram.com/iteribai/ | Canal Youtube: https://www.youtube.com/@iteribai
