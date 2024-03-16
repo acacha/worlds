@@ -31,6 +31,14 @@ Puntos revelantes en Google Maps:
 
 https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
+# Rio Deza
+
+Impressionante rio con impressionante caudal. El pacrafter és el único animal que tropiexa dos veces con la misma ola lateral ;-)
+
+Ruta wikiloc:
+
+- https://www.wikiloc.com/rafting-trails/packrafting-dio-deza-bascuas-cira-164054023
+
 # Rio Cabrera
 
 Ruta Invierno 2024
