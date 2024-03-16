@@ -12,6 +12,7 @@ Miño - Sil:
 
 ![image](https://github.com/acacha/worlds/assets/4015406/88542706-92e8-403c-962f-89fc714d2efc)
 
+https://rebrand.ly/packrafting_calendar
 
 # Aplicaciones
 
@@ -24,12 +25,28 @@ En las típicas:
 
 - No aparecen rios de Galicia de momento
 
+# Mapa Google Maps
+
+Puntos revelantes en Google Maps:
+
+https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
+
 # Rio Sil
 
 Ruta wikiloc Invierno 2024
 
-Hecha con niveles altos de agua, sección tramo mas fàcil evitando el cañon.
+Hecha con niveles potentens de agua, sección tramo mas fàcil evitando el cañon.
 
+![image](https://github.com/acacha/worlds/assets/4015406/92ad9570-2e96-486f-b9b1-e4c71f289991)
+
+
+Niveles de Agua:
+
+Consultar SAIH de Miño-Sil:
+
+- http://saih.chminosil.es/index.php?url=/datos/mapas/mapa:H1/area:HID/acc:
+
+O la aplicación Whitewater guide la zona de Galicia and northern Portugal
 
 Vídeos:
 
