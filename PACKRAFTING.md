@@ -239,7 +239,9 @@ https://gist.github.com/acacha/3d287961da6a82d7f7b3febbc16b01ed
 
 - Club deportivo los Gancheros, Alto Tajo | https://www.facebook.com/losgancheros/?locale=es_ES
 
-## Cañon del sil
+### Galicia
+
+#### Cañon del sil
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
 
