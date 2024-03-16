@@ -35,13 +35,16 @@ https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
 ## Tramo intermedio
 
+Fotos:
+- https://photos.app.goo.gl/xCHRciNKiG1i1nMY8
+
 Wikiloc:
 - https://www.wikiloc.com/rafting-trails/packrafting-galicia-rio-lor-frojan-ponte-de-barxa-barxa-de-lor-164086649
   
 ## Tramo bajo
 
 Fotos:
-
+- https://photos.app.goo.gl/xCHRciNKiG1i1nMY8
 
 Ruta wikiloc:
 
