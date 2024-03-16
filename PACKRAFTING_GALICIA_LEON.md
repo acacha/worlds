@@ -52,6 +52,12 @@ https://www.wikiloc.com/rafting-trails/packrafting-galicia-tramo-bajo-rio-lor-ba
 Fotos:
 - https://photos.app.goo.gl/ZuBVtesAsKzjiBPbA
 
+Wikiloc:
+- https://www.wikiloc.com/rafting-trails/packrafting-galicia-rio-burbia-paradaseca-villafranca-del-bierzo-164088523
+
+Fotos:
+- https://photos.app.goo.gl/ZuBVtesAsKzjiBPbA
+
 # Rio Deza
 
 Fotos i videos:
