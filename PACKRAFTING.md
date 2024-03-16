@@ -241,6 +241,8 @@ https://gist.github.com/acacha/3d287961da6a82d7f7b3febbc16b01ed
 
 ### Galicia
 
+https://github.com/acacha/worlds/blob/main/PACKRAFTING_GALICIA_LEON
+
 #### Cañon del sil
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-canon-do-sil-16269752
