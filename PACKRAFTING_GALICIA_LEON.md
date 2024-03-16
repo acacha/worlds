@@ -26,4 +26,14 @@ En las típicas:
 
 # Rio Sil
 
-https://www.wikiloc.com/rafting-trails/packrafting-galicia-sobradelo-o-barco-de-valdeorras-163968238
+Ruta wikiloc Invierno 2024
+
+Hecha con niveles altos de agua, sección tramo mas fàcil evitando el cañon.
+
+
+Vídeos:
+
+https://photos.app.goo.gl/meBRDp3fPSaacSn5A
+
+Ruta wikiloc:
+- https://www.wikiloc.com/rafting-trails/packrafting-galicia-sobradelo-o-barco-de-valdeorras-163968238
