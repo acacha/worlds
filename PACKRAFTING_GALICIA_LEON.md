@@ -31,6 +31,10 @@ Puntos revelantes en Google Maps:
 
 https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
+# Rio Lor
+
+# Rio Burbia
+
 # Rio Deza
 
 Impressionante rio con impressionante caudal. El pacrafter és el único animal que tropiexa dos veces con la misma ola lateral ;-)
