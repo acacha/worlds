@@ -35,8 +35,9 @@ https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
 ## Tramo intermedio
 
-TODO
-
+Wikiloc:
+- https://www.wikiloc.com/rafting-trails/packrafting-galicia-rio-lor-frojan-ponte-de-barxa-barxa-de-lor-164086649
+  
 ## Tramo bajo
 
 Fotos:
@@ -47,6 +48,9 @@ Ruta wikiloc:
 https://www.wikiloc.com/rafting-trails/packrafting-galicia-tramo-bajo-rio-lor-barxa-de-lor-augasmestas-164059426
 
 # Rio Burbia
+
+Fotos:
+- https://photos.app.goo.gl/ZuBVtesAsKzjiBPbA
 
 # Rio Deza
 
