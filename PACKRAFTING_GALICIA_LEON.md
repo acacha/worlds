@@ -31,6 +31,30 @@ Puntos revelantes en Google Maps:
 
 https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
+# Programa
+
+Río Sil (1ª día) puesta a punto, tramo de aguas bravas de aproximadamente 20 kilómetros.
+
+Río Cabrera (2ª día) es un precioso río metido en pleno corazón de los Ancares, en la sierra del cabrera, éste río queda boquiabierto a todos los que vienen a remar.
+
+Río Soldon (3ª dia): precioso río en la zona de valdeorras, uno de los preferidos en cuanto al ambiente cañón y hostil de la naturaleza.
+
+Río Selmo (4ª día) otro precioso río de la zona de valdeorras, con más de 20 kilómetros navegables.
+
+Río Lor  (5ª y 6ª dia) Río increíble.
+
+# Río Soldon 
+
+TODO: 
+
+Río Soldon (3ª dia): precioso río en la zona de valdeorras, uno de los preferidos en cuanto al ambiente cañón y hostil de la naturaleza.
+
+# Rio Selmo
+
+TODO
+
+Río Selmo (4ª día) otro precioso río de la zona de valdeorras, con más de 20 kilómetros navegables.
+
 # Rio Lor
 
 ## Tramo intermedio
@@ -77,6 +101,7 @@ Ruta wikiloc:
 
 Ruta Invierno 2024
 
+Río Cabrera  es un precioso río metido en pleno corazón de los Ancares, en la sierra del cabrera, éste río queda boquiabierto a todos los que vienen a remar.
 
 Niveles de Agua:
 
@@ -94,6 +119,9 @@ Ruta wikiloc:
 - [https://www.wikiloc.com/rafting-trails/packrafting-galicia-sobradelo-o-barco-de-valdeorras-163968238](https://www.wikiloc.com/rafting-trails/packraf-galicia-rio-cabrerallamas-de-cabrera-pombriego-163975303)
 
 # Rio Sil
+
+Río Sil (1ª día) puesta a punto, tramo de aguas bravas de aproximadamente 20 kilómetros.
+
 
 Ruta wikiloc Invierno 2024
 
