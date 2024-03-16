@@ -31,6 +31,26 @@ Puntos revelantes en Google Maps:
 
 https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
+# Rio Cabrera
+
+Ruta Invierno 2024
+
+
+Niveles de Agua:
+
+Consultar SAIH de Miño-Sil:
+
+- http://saih.chminosil.es/index.php?url=/datos/mapas/mapa:H1/area:HID/acc:
+
+O la aplicación Whitewater guide la zona de Galicia and northern Portugal
+
+Vídeos:
+
+https://photos.app.goo.gl/8aBUR887hQz2zbjz5
+
+Ruta wikiloc:
+- [https://www.wikiloc.com/rafting-trails/packrafting-galicia-sobradelo-o-barco-de-valdeorras-163968238](https://www.wikiloc.com/rafting-trails/packraf-galicia-rio-cabrerallamas-de-cabrera-pombriego-163975303)
+
 # Rio Sil
 
 Ruta wikiloc Invierno 2024
