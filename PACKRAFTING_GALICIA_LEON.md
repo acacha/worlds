@@ -33,6 +33,19 @@ https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
 # Rio Lor
 
+## Tramo intermedio
+
+TODO
+
+## Tramo bajo
+
+Fotos:
+
+
+Ruta wikiloc:
+
+https://www.wikiloc.com/rafting-trails/packrafting-galicia-tramo-bajo-rio-lor-barxa-de-lor-augasmestas-164059426
+
 # Rio Burbia
 
 # Rio Deza
