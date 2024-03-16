@@ -37,6 +37,10 @@ https://maps.app.goo.gl/N4LmPr8GukWi4DtA6
 
 # Rio Deza
 
+Fotos i videos:
+
+- https://photos.app.goo.gl/mshWi81SvTyZAdcj9
+
 Impressionante rio con impressionante caudal. El pacrafter és el único animal que tropiexa dos veces con la misma ola lateral ;-)
 
 Ruta wikiloc:
