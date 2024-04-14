@@ -6,6 +6,8 @@ Apuntes de packraft creados por Sergi Tur Badenas | Instagram 1: [acacha_worlds]
 
 https://rebrand.ly/packrafting_calendar
 
+<iframe src="https://calendar.google.com/calendar/embed?src=a78921994bbbd04243ef62e98e8045cd8c56109caa633dc202637cd82d70a7af%40group.calendar.google.com&ctz=Europe%2FMadrid" style="border: 0" width="800" height="600" frameborder="0" scrolling="no"></iframe>
+
 # Amigos del packraft
 
 - Cèsar Pasadas (aka Iteribai): Instagram: https://www.instagram.com/iteribai/ | Canal Youtube: https://www.youtube.com/@iteribai
