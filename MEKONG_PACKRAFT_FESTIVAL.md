@@ -8,3 +8,7 @@ https://privyetmir.co.uk/canoeing/southern5.html
 
 
 https://www.eauxvives.org/fr/rivieres/voir/souloise
+
+# Ubaye
+
+https://www.mekongpackraft.com/ubaye-reine-neiges/
