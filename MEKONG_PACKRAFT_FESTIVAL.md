@@ -6,9 +6,9 @@ https://privyetmir.co.uk/canoeing/southern5.html
 
 https://www.mekongpackraft.com/le-drac-entre-saint-bonnet-et-le-pont-de-la-guinguette/
 
-
-
 # Souloise
+
+https://www.wikiloc.com/rafting-trails/mekong-packraft-festival-souloise-167409745
 
 ![image](https://github.com/acacha/worlds/assets/4015406/2cd90071-d14f-49c8-a7dc-3c0ca3403f83)
 
