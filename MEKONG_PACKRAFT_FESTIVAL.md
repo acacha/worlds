@@ -10,6 +10,9 @@ https://www.mekongpackraft.com/le-drac-entre-saint-bonnet-et-le-pont-de-la-guing
 
 https://www.wikiloc.com/rafting-trails/mekong-packraft-festival-souloise-167409745
 
+![image](https://github.com/acacha/worlds/assets/4015406/9af3cbca-7bde-42b6-a362-f39906fece32)
+
+
 Alternança de congost boscós i congost real de més de 4km5.
 
 Navegable d'1m30 a 1m80 a través de l'Infran
