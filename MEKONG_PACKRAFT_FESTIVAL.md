@@ -20,7 +20,7 @@ Riu de tipus alpí. El corrent és ràpid i els planiols són inexistents. Hi ha
 
 Paisatge: Impressionant
 
-Aïllament: un sender recorre el riu tot el recorregut a RG, però no sempre és accessible
+Aïllament: un sender recorre el riu tot el recorregut a RG, però no sempre és accessible. Hi ha diverses rutes a wikiloc.https://ca.wikiloc.com/rutes-senderisme/la-posterie-104917744
 
 Potencial de playboating: feble, hi ha moltes onades, però pocs comptadors
 
