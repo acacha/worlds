@@ -57,7 +57,19 @@ Otras actividades:
 - Via ferrata: Ferrata Omiš
 - Barranquisme / Canyoning
 
+- ### Barranquismo
+
+- https://es.wikiloc.com/wikiloc/view.do?pic=rutas-descenso-de-barrancos&slug=cetina-kanjoning&id=14207501&rd=es
+- https://nestvarna.net/2016/08/08/cetina-canyoning-kanyoning/
+
+
 # BOSNIA
 
 ## Una river (national park)
+
+## Sutjeska 
+
+https://www.youtube.com/watch?v=r6zgrdn1LrQ
+
+
 
