@@ -2,6 +2,8 @@ Llibres en alemany:
 
 https://www.amazon.de/s?k=DKV+Auslandsf%C3%BChrer+S%C3%BCdosteuropa&i=stripbooks&crid=1KG7APGZMRTP6&sprefix=dkv+auslandsf%C3%BChrer+s%C3%BCdosteuropa%2Cstripbooks%2C78&ref=nb_sb_noss
 
+https://www.eggstreamkayak.com/
+
 # DE CAMINO
 
 ## SLOVENIA
@@ -96,9 +98,36 @@ Bibliografia
 DKV Auslandsführer Südosteuropa (mapa alemany de tots els rius dels Balcans i Türkiye)
 
 ### NERETVA-P2 Gorges de la Neretva |  Aval de Glavicevo - Amont de Konjic
+
+https://www.eauxvives.org/en/rivieres/voir/NERETVA/parcours:2651
+
 - Aval de Glavicevo - Amont de Konjic
 - 25 km
 - II et 5 passages 3.
+- SENSE REFERÈNCIA DE NIVELL
+
+Entrada a Aigües avall de Glavicevo
+Sortida a Aigües amunt de Konjic
+
+Introducció
+
+Poc després d'embarcar, el riu s'enfonsa en gorgues. De vegades està vorejat per 2 penya-segats verticals, sense platja ni possibilitat d'aterratge. Surt uns 5 km riu amunt de Konjic
+
+- La fesomia: Successió de ràpids de classe 2 i plagniols curts. Els 5 ràpids de classe 3 estan regularment espaiats.
+- Logística: Com a mínim 2 punts d'embarcament proporcionats per les empreses de bassa. El riu s'uneix a la carretera uns quilòmetres riu amunt de Konjic. Nombroses possibilitats de desembarcament.
+- Paisatge: Congosts de pedra calcària, amb penya-segats i boscos caducifolis.
+- Aïllament: Total a les gorgues, on trobem 4 dels 5 passatges 3.
+- Potencial de playboating: Als passatges 3
+- Durada: 2-3 hores
+
+Al llarg de l'aigua
+
+Els ràpids de classe 3 són curts, però tenen un bon desnivell. Vam passar de vista, però el nivell era baix. Alguns han d'anar a la classe 4 per aigües altes.
+Última baixada
+
+Finals de juliol de 2016.
+
+Fet el 31 de maig de 2017 Ruta menys de 25 km Ho fem en menys de 2 hores Crec que són més entre 15 i 20 km
 
 ## Sutjeska 
 
@@ -112,6 +141,14 @@ https://www.youtube.com/watch?v=r6zgrdn1LrQ
 # MONTENEGRO
 
 ![image](https://github.com/acacha/worlds/assets/4015406/ebcbeaef-33f1-4f66-8f02-44187a5eaab4)
+
+## DRINA
+
+https://sutjeskanp.com/en/kayaking-on-the-river-drina/
+
+![image](https://github.com/acacha/worlds/assets/4015406/34f94baa-c0fe-418f-8fdf-77f8553115a8)
+
+## PIVA
 
 
 ## TARA
