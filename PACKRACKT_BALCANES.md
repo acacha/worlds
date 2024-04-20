@@ -270,6 +270,44 @@ abril de 2022 amb l'equip Eggstream
 
 ## MORACA
 
+- Localització geogràfica: Nascut d'un ressorgiment al districte de Kolasin, el Moraca (pronunciat Moratcha) flueix cap al sud per llargs congostos i acaba el seu curs al llac Shkodra.
+- Introducció: El Moraca és un dels últims rius europeus que no té cap presa al seu curs, des del naixement fins al llac. Per tant, l'aigua és molt bonica i és possible fer 100 km de caiac en diversos dies. Els ràpids encara són presents a la capital, Podgorica! - - La Moraca evoluciona en una regió càrstica, pot passar que s'assequi gairebé completament en cas d'estiu molt calorós.
+- Període favorable: primavera
+- Escala: que jo sàpiga al Moraca, però 2 escales es troben al Mrtvica (afluent RD), l'última és 100 m abans de la confluència
+- Velocitat: natural
+- Qualitat de l'aigua: clar / turquesa, excepte pluja, és clar
+- Riscos especials: Poques/no hi ha sortides al canó superior
+
+Webs útils
+- https://www.kayaksession.com/balkan-rivers-tour-2-part-3-moraca-action/ (Tour del riu dels Balcans)
+
+### P1
+
+- 16 km
+- el Cl IV(5) E3
+-SENSE REFERÈNCIA DE NIVELL
+
+- Entrada: pont sobre Dragovica Polje
+- Sortida: pont 1 km abans del monestir
+
+
+Introducció
+- Part alta, no estem lluny de la font, pot faltar aigua els primers km. Ruta de fitness. La continuació després del monestir és II-III (4) durant desenes de km
+- La fesomia: Congost, poc accés encara que la carretera no estigui lluny a vol d'or
+- Pintura: important, perquè hi ha un desnivell de 380 m al recorregut!
+- Logística: carreteres R18 i E65, embarcament al pont situat a 500 m d'una església ortodoxa, desembarcant en un pont de fusta 1 km abans del monestir de Moraca (creuar camps per arribar al camí)
+- Paisatge: Amb prou feines veiem el sol donada l'alçada del canó
+- Aïllament: cert
+- Potencial playboating: mooouuiii, però és curt ;)
+- Durada: 5 hores sense quedar-se, l'exploració no és massa problemàtica
+
+Al llarg de l'aigua
+
+Primera part maniobrable i continua IV(5) durant 5 km, després es calma uns km, després arriba una 3a part molt intensa i compromesa en IV-V, que acaba al pont gran de la E65 que creua el canó. Nivell ràpid ho trobem de tot i tot passa (si volem): esquerdes, estretes, ràpels, sifons parcials / socavat
+
+Última baixada
+mitjans d'abril de 2022 amb l'equip Eggstream. El cabal era perfecte, mitjà-alt. Hi havia uns ous trencats...
+
 ## PIVA
 
 Alternatives a baixes aigües: PIVA: navegació per llançaments, malauradament impredictible. Embarcament sota la presa. Aigua a 4°C!
