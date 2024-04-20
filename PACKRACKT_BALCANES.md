@@ -14,6 +14,8 @@ https://es.wikiloc.com/rutas-descenso-de-barrancos/oberer-teil-zrmanja-schlucht-
 
 ## KRKA RIVER
 
+https://www.wikiloc.com/rafting-trails/splyw-kajakowy-rzeka-zrmanja-9537403
+
 ## Mreznica 
 
 Primislje, Mjesto Primišlje, Croatia: 
@@ -35,7 +37,6 @@ https://raftrek.com/tour/packrafting-river-mreznica-lower-section/
 
 Acaba: Zeleni kut restaurant
 
-
 Altres:
 - https://bearstonefestival.com/ 4 al 7 de Juliol
 - Plitvice Lakes
@@ -54,6 +55,10 @@ I el naixement del riu, anomenat el eye of earth o eye de croació, curios naixe
 ![image](https://github.com/acacha/worlds/assets/4015406/d5f00425-a29a-4aec-8140-68e7c76cf813)
 
 ![image](https://github.com/acacha/worlds/assets/4015406/1cee4b3e-1f01-48ac-a55f-7dfc5c180c14)
+
+
+https://www.wikiloc.com/rafting-trails/splyw-kajakowy-rzeka-zrmanja-9537403
+
 
 Otras actividades:
 - Zip line
