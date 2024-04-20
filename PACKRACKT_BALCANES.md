@@ -55,6 +55,7 @@ Otras actividades:
 - Zip line
 - Escalada
 - Via ferrata: Ferrata Omiš
+- Barranquisme / Canyoning
 
 # BOSNIA
 
