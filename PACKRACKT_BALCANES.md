@@ -82,6 +82,9 @@ https://www.youtube.com/watch?v=r6zgrdn1LrQ
 
 # MONTENEGRO
 
+![image](https://github.com/acacha/worlds/assets/4015406/ebcbeaef-33f1-4f66-8f02-44187a5eaab4)
+
+
 ## TARA
 
 El Tara travessa el nord de Montenegro d'est a oest, des de la frontera albanesa fins a la frontera amb Bòsnia, i excava profundes gorges en un altiplà càrstic, al peu de les muntanyes de 2 parcs nacionals, inclòs DURMITOR. És navegable durant gairebé tota aquesta ruta. A la confluència amb el PIVA, el riu canvia de nom i es converteix en DRINA. Es manté navegable uns quants km més.
