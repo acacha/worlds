@@ -80,5 +80,51 @@ Otras actividades:
 
 https://www.youtube.com/watch?v=r6zgrdn1LrQ
 
+# MONTENEGRO
+
+## TARA
+
+El Tara travessa el nord de Montenegro d'est a oest, des de la frontera albanesa fins a la frontera amb Bòsnia, i excava profundes gorges en un altiplà càrstic, al peu de les muntanyes de 2 parcs nacionals, inclòs DURMITOR. És navegable durant gairebé tota aquesta ruta. A la confluència amb el PIVA, el riu canvia de nom i es converteix en DRINA. Es manté navegable uns quants km més.
+
+- Localització geogràfica: Nord de Montenegro
+- Menjar: Nivale a la primavera. Quan travessa el parc del Durmitor, s'alimenta de diversos grans ressorgiments, fins i tot a l'estiu. Les fortes pluges haurien de fer que s'infle molt ràpidament. 
+- Període favorable: Vam navegar a finals de juliol, amb un nivell molt interessant.
+- Velocitat: Vam navegar en aigua baixa. Calculo que a la via P2 hi havia 15 m3/s, uns 25 m3/s a l'embarcament de la P4, i més de 40-45 m3/s després del ressorgiment a l'inici del recorregut.
+- Qualitat de l'aigua: Excel · lent. Els habitants diuen que és potable. Sens dubte, els ressorgiments ho són.
+- Temperatura de l'aigua: No hi nedes ni a 35° a l'ombra.
+- Riscos especials: RAS al riu (veure ruta). Altres perills: Insolació, tempestes. Hem tingut informes d'escurçons fins i tot a l'aigua. No n'hem vist cap. Aïllament total.
+- Rescat: La cobertura de la xarxa no és dolenta. Quant de temps trigarà a arribar l'ajuda?
+- Proveïdors: Grab, a Sepan Polje (frontera amb Bòsnia), amb el suport de l'agència Anitra. Molts altres són presents tant a Sepan Polje com a Zalbjak.
+- Bones adreces: Agarrar: empresa de basses, amb càmping, situada a uns 10 km de Sepan Polje. Són els més cars, però parlen anglès i són professionals i fiables. Menjador col·lectiu matí, migdia i vespre, econòmic. No hi ha botiga de queviures ni fleca a una bona hora amb cotxe de Sepan Polje. EKO-OAZA: càmping a Dobrilovina, per fer les rutes superiors (ekooazatara@gmail.com). Bona cuina i informació del propietari del càmping. Possibilitat d'organitzar transports.
+
+Bibliografia
+DKV Auslandführer, Sudeuropa. Riu del sud-est d'Europa, molt ben documentat però cal entendre l'alemany.
+Alternatives de navegació
+Alternatives a baixes aigües: PIVA: navegació per llançaments, malauradament impredictible. Embarcament sota la presa. Aigua a 4°C!
+Alternatives d'aigua mitjana:
+Alternatives d'alta aigua: Kormanica: informació a demanar al guia cap del campament Grab.
+
+https://www.eauxvives.org/fr/rivieres/voir/TARA
+
+![image](https://github.com/acacha/worlds/assets/4015406/650ac3ec-b407-4f10-95ae-57215605ca06)
+
+Eaux vives:
+
+https://www.eauxvives.org/fr/rivieres/voir/TARA
+
+## PIVA
+
+Alternatives a baixes aigües: PIVA: navegació per llançaments, malauradament impredictible. Embarcament sota la presa. Aigua a 4°C!
+
+## Kormanica
+
+lternatives d'alta aigua: Kormanica: informació a demanar al guia cap del campament Grab.
+
+
+
+
+
+
+
 
 
