@@ -1,3 +1,7 @@
+Llibres en alemany:
+
+https://www.amazon.de/s?k=DKV+Auslandsf%C3%BChrer+S%C3%BCdosteuropa&i=stripbooks&crid=1KG7APGZMRTP6&sprefix=dkv+auslandsf%C3%BChrer+s%C3%BCdosteuropa%2Cstripbooks%2C78&ref=nb_sb_noss
+
 # DE CAMINO
 
 ## SLOVENIA
@@ -74,9 +78,34 @@ Otras actividades:
 
 # BOSNIA
 
+![image](https://github.com/acacha/worlds/assets/4015406/f7da331a-8449-4720-a33c-573763eadc7f)
+
 ## Una river (national park)
 
+## NERETVA
+
+- Localització geogràfica: La Neretva té el seu naixement al sud-est de Bòsnia. Puja cap al nord-oest fins a Konjic abans de girar cap al sud, travessa Mostar i desemboca a l'Adriàtic al sud de Croàcia.
+- Introducció: Riu amunt de Konjic, travessa una regió remota i muntanyosa en la qual Tito va enfrontar els nazis. Aleshores queda bloquejat, fins a uns quilòmetres aigües amunt de Mostar.
+- Menjar: Principalment nevat.
+- Període favorable: A la primavera i bona part de l'estiu aigües amunt de Konjic. Probablement durant tot l'any a nivell de Mostar.
+- Qualitat de l'aigua: Excel·lent a P1. Molt bé a Mostar.
+- Temperatura de l'aigua: Al voltant de 15-17 °C a finals de juliol
+- Proveïdors: Molts proveïdors de ràfting a prop de Konjic.
+
+Bibliografia
+DKV Auslandsführer Südosteuropa (mapa alemany de tots els rius dels Balcans i Türkiye)
+
+### NERETVA-P2 Gorges de la Neretva |  Aval de Glavicevo - Amont de Konjic
+- Aval de Glavicevo - Amont de Konjic
+- 25 km
+- II et 5 passages 3.
+
 ## Sutjeska 
+
+### Sutjeska-P2 Middle | un pont plus haut sur la M20... - pont à Omladinski kamp Tjentište
+- un pont plus haut sur la M20... - pont à Omladinski kamp Tjentište
+- 10 km
+- IV(5)-III E1
 
 https://www.youtube.com/watch?v=r6zgrdn1LrQ
 
