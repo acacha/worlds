@@ -24,7 +24,12 @@ https://activityholidayscroatia.com/tours/packrafting-tour-croatia/
 https://www.365.tours/activities/652
 
 Diferents seccions:
-- Lower Section: https://raftrek.com/tour/packrafting-river-mreznica-lower-section/
+
+**Lower Section**:
+
+https://raftrek.com/tour/packrafting-river-mreznica-lower-section/
+
+Acaba: Zeleni kut restaurant
 
 
 Altres:
