@@ -38,6 +38,11 @@ Altres:
   
 ## CETINA RIVER (Costa, cerca Split)
 
+I el naixement del riu, anomenat el eye of earth o eye de croació, curios naixement del riu
+
+![image](https://github.com/acacha/worlds/assets/4015406/bfb3123b-2568-4c2a-a8e8-9ced98d8c6fe)
+
+
 Últims 20 km del riu
 
 - River App: Lower Cetina Class 2. Espectacular molt curt canyon que dona al mar:
