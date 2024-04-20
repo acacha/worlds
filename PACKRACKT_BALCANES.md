@@ -115,6 +115,65 @@ Eaux vives:
 
 https://www.eauxvives.org/fr/rivieres/voir/TARA
 
+### P2- Tara superior
+
+- In: Kolasin pont
+- Out: Mojkovac pont
+
+Informació
+- 22 km
+- Cl II després III a I...
+- SENSE REFERÈNCIA DE NIVELL
+
+Aquesta part transcorre per la carretera, als peus del Parc Nacional de Biograska Gora. Baix cabal respecte al recorregut al parc Durmitor. La fesomia: Els primers km no tenen ràpids per sobre de la classe 2. Els ràpids de classe 3 i 3+ es troben en els darrers 5 km. Pendent: Més aviat feble. Els ràpids se succeeixen, separats per plagniols curts. Vam estar a la vista durant tot el camí.
+
+Muntanya. No podem veure la carretera del riu, excepte en rars passos.
+
+- Aïllament: No
+- Potencial de playboating: Feble a poca aigua.
+- Durada: 3-4 hores.
+
+### P3- Pont Mojkovac-Durdevica
+- Cl II després III
+- SENSE REFERÈNCIA DE NIVELL
+- ? km
+
+- Inici: Mojkovac
+- Fi: Embarcament de P4
+
+Compte, una mica abans de Dobrilovina, la Tara entra al parc Durmitor, així que l'accés és de pagament i car!
+
+Al llarg de l'aigua: 2 infrans (2 infranquejabls)
+
+### P4- Gorges de la Tara
+- 65 km
+- Cl III, II després III...
+- SENSE REFERÈNCIA DE NIVELL
+
+- Entrada: Quan la carretera del pont de Durdevica Tara cap a Mojkovac s'uneix a la Tara
+- Sortida: Sepan Polje (frontera amb Bòsnia)
+
+
+El riu forma un profund canó en un altiplà de pedra calcària. Gairebé cap rastre d'habitabilitat a la major part del recorregut. El volum d'aigua es duplica ràpidament després de la sortida gràcies a l'aportació d'un gran ressorgiment (fred) al marge dret.
+La fesomia. Els primers 10-15 km ofereixen una successió de ràpids de classe 3 (uns quinze ràpids). Aquesta ruta és operada per empreses de bassa. Els propers 40 km són més fàcils. Havent desembarcat les bigues, ens trobem sols a l'aigua. Els últims 10-12 km, fora del parc nacional, inclouen 20 ràpids de classe 3 i 1 de classe 4. Hi ha nombroses basses.
+
+Logística: Montenegro té una política d'accés a l'aigua que desanima un gran nombre de remistes: vam pagar 70€ per persona i dia per posar les nostres barques a l'aigua! Aquest impost no s'aplica als darrers 12 km del recorregut. Es triga 4 hores a viatjar amb cotxe entre la sortida i l'arribada, amb només un punt de recàrrega: Zabljak. Les companyies de basses ofereixen el servei de trasllat (Compte de 120 a 200 € per 4*4).
+
+Paisatge
+- Impressionant: penya-segats, boscos i aigües clares i transparents.
+Aïllament
+- Total. Només unes poques pistes baixen als rius.
+Durada
+- 3 dies amb parada en un “motel” després d'uns 30 km de navegació a un lloc anomenat Radovan Luka (reserva possible a través de l'agència Anitra, però sense càtering). 2a nit al campament GRAB, a uns 7 km aigües amunt de Sepan Polje.
+
+Al llarg de l'aigua
+- Consulteu la guia (en alemany) Südeuropa. RAS a Radovan Luka. Aprofiteu els primers ràpids per passar-ho bé. Uns quilòmetres després de Radovan Luka, després del pont penjant, un drossage amb moviments violents d'aigua potser podria resultar perillós, segons el nivell de l'aigua. Tan bon punt trobem les basses, després d'un llarg viatge fàcil, el nivell augmenta. El ràpid de classe 4 és el ràpid de 2° o 3°.
+- El riu dels 500 pneumàtics! Fins i tot trobem bosses d'escombraries amb llaunes de cervesa buides als marges abandonats per basses sense escrúpols! Llàstima, la transparència de l'aigua és simplement màgica! Fet per un nivell d'aigua baix l'agost de 2017, la dificultat és de classe II als congostos i III a la sortida dels congosts. Els guardaparcs no sempre són amables i els preus són difícils d'entendre. El canó més profund d'Europa? Pot ser ! Però un Verdon, un Ardèche o un Tarn és molt més impressionant! Ens va agradar molt el Grab Camp.
+
+## CEMIT
+
+## MORACA
+
 ## PIVA
 
 Alternatives a baixes aigües: PIVA: navegació per llançaments, malauradament impredictible. Embarcament sota la presa. Aigua a 4°C!
