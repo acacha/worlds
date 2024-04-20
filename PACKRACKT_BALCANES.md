@@ -170,7 +170,103 @@ Al llarg de l'aigua
 - Consulteu la guia (en alemany) Südeuropa. RAS a Radovan Luka. Aprofiteu els primers ràpids per passar-ho bé. Uns quilòmetres després de Radovan Luka, després del pont penjant, un drossage amb moviments violents d'aigua potser podria resultar perillós, segons el nivell de l'aigua. Tan bon punt trobem les basses, després d'un llarg viatge fàcil, el nivell augmenta. El ràpid de classe 4 és el ràpid de 2° o 3°.
 - El riu dels 500 pneumàtics! Fins i tot trobem bosses d'escombraries amb llaunes de cervesa buides als marges abandonats per basses sense escrúpols! Llàstima, la transparència de l'aigua és simplement màgica! Fet per un nivell d'aigua baix l'agost de 2017, la dificultat és de classe II als congostos i III a la sortida dels congosts. Els guardaparcs no sempre són amables i els preus són difícils d'entendre. El canó més profund d'Europa? Pot ser ! Però un Verdon, un Ardèche o un Tarn és molt més impressionant! Ens va agradar molt el Grab Camp.
 
-## CEMIT
+## CEMIT Cijevna
+
+![image](https://github.com/acacha/worlds/assets/4015406/3de5a651-20fb-47d3-ba9b-bcd344541901)
+
+
+- Geographic location: La Cemit prend sa source à l'extreme nord de l'Albanie et coule ouest dans l'Adriatique. Elle prend le nom de Cijevna passé la frontière avec le Monténégro, passe au sud de Podgorica et rejoins la Moraca.
+- Introduction: Rivière connue par les kayakistes (les locaux et ceux d'ailleurs), traverse des gorges magnifique. Peut être sèche en été.
+- Alimentation: Pluvio-nival
+- Période favorable: Printemps
+- Echelle: une echelle présente sous le 1er pont de singe du P3, 65cm est un niveau moyen
+- Qualité de l'eau: très bonne, couleur superbe
+- Risques particuliers: engagement extrême dans les gorges du bas (et siphons intégraux)
+Alternatives de navigation
+- Alternatives basses eaux : Zeta (classe II-III), Moraca
+- Alternatives moyennes eaux : Zeta, Moraca
+- Alternatives hautes eaux :
+
+### P2. Cemit clàsic | Presa aigües amunt de Tamare a "Cem i Selce aiguabarreig
+
+https://www.eauxvives.org/en/rivieres/voir/Cemit_Cijevna/parcours:3030
+
+- 1,5 km
+- Cl IV(5) E1
+- SENSE REFERÈNCIA DE NIVELL
+
+Entrada 
+- confluent "Cem i Selce"
+DESCRIPCIÓ
+- Introducció: part clàssica, presenta precioses aigües braves sostingudes
+La fesomia: gorges de fàcil accés (ja que el camí estava asfaltat...), sense compromís
+- Logística: ruta RG
+- Paisatge: bonic
+- Aïllament: sí i no, passa en un poble però és Albània!
+- Al llarg de l'aigua: Embarcament RD poc després de la presa situada just aigües amunt del poble de Tamare. Ataquem directament al IV recolzat alpí. Els grans passatges són un llindar de 3-4m + un trencament sota un pont de fusta. Desembarcar a la confluència per a una 2a ronda, o continuar per P3 fins a Montenegro.
+
+Última baixada
+abril de 2022 amb Eggstream
+
+### P3. Confluent "Cem i Selcës" - frontière Monténégro
+
+https://www.eauxvives.org/en/rivieres/voir/Cemit_Cijevna/parcours:3031
+
+- 8 km
+- de Cl  III(4) E1
+- NO LEVEL REFERENCE
+
+Introducció
+- magnífiques gorges amb passatges
+Logística
+- ruta RG
+Paisatge
+- sublim
+Aïllament
+- correcte, malgrat la carretera propera
+Potencial playboating
+- Sí
+Al llarg de l'aigua
+- Res especial, unes quantes acceleracions i passatges de maniobra. Sota el 1r pont de corda hi ha una escala. Desembarcament al pont de corda 200m abans de la frontera.
+
+### P4. Frontera amb Albania - Dinosa
+
+- 16 km
+- de Cl  II-III(4) E1
+- NO LEVEL REFERENCE
+
+en réalité la continuité du parcours précédent, mais de l'autre coté du poste-frontière
+Logistique
+- route RG
+Paysage
+- boonnn
+Dernière descente
+- Section non descendue lors de notre passage, presque tout se voit de la route. Présence d'ouvrages artificiels légers mais pas d'engagement.
+
+### P5. Dinosa a Cascades del Niagara en SerboCroat (OCO SIFONS)
+
+https://www.eauxvives.org/en/rivieres/voir/Cemit_Cijevna/parcours:3033
+
+- 8 km
+- el Cl   III(4-5-X) E3
+- SENSE REFERÈNCIA DE NIVELL
+
+- Entrada: Dinosa
+- Sortida: Cascades del Niàgara
+
+- Introducció: ruta increïble i atípica: la Cijevna s'endinsa aquí en un laberint de gorges estretes i llises però mai més altes de 5 m. Per tant, el compromís és "extrem" de vegades.
+- La fesomia: imagina 20m3 en un canó de menys d'un metre d'amplada, voilà! Presència de socavats, + o - sifons parcials i complets segons el nivell...
+- Logística: simple llançadora, estem en una àmplia plana
+- Paisatge: uf
+- Aïllament: els camins no estan lluny però no veuràs molta gent
+- Durada: 3h
+
+Al llarg de l'aigua
+
+Recorregut format per diversos canyons súper estrets, el més llarg és de 1500m (final cap als 2 ponts carretera/tren). És obligatori localitzar-ho tot perquè aturar-se és impossible, s'ha de localitzar fins a un possible desembarcament que de ben segur serà difícil. Hi ha un llindar a l'entrada d'aquesta darrera part, a més d'un boc que no s'ha de perdre perquè després el riu passa per un forat de roca per sobre d'un gran sifó... 1 sifó ple abans de la caiguda amb el cabal que teníem. Final de la ruta a Nijagara vodopad (= cascada del Niàgara en serbocroat): cascada artificial de 8-10m que cau en un estret canó, sifó ple 50m més tard. La caiguda passa però en angle perquè una pedra no està lluny...
+
+Última baixada
+abril de 2022 amb l'equip Eggstream
 
 ## MORACA
 
