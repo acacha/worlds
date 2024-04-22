@@ -150,8 +150,14 @@ https://sutjeskanp.com/en/kayaking-on-the-river-drina/
 
 ## PIVA
 
+TODO, afluent del tara, just el punt de frontera amb Montenegro i Bosnia. Surt a rivermap calsse III
 
 ## TARA
+
+Ruta wikiloc: https://www.wikiloc.com/rafting-trails/packrafting-tara-canyon-montenegro-sljivansko-scepan-polje-168229204
+
+![image](https://github.com/acacha/worlds/assets/4015406/aecae9ee-6287-4b11-9c75-315972c2565d)
+
 
 El Tara travessa el nord de Montenegro d'est a oest, des de la frontera albanesa fins a la frontera amb Bòsnia, i excava profundes gorges en un altiplà càrstic, al peu de les muntanyes de 2 parcs nacionals, inclòs DURMITOR. És navegable durant gairebé tota aquesta ruta. A la confluència amb el PIVA, el riu canvia de nom i es converteix en DRINA. Es manté navegable uns quants km més.
 
