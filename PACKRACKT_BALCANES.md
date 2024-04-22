@@ -156,6 +156,14 @@ TODO, afluent del tara, just el punt de frontera amb Montenegro i Bosnia. Surt a
 
 Ruta wikiloc: https://www.wikiloc.com/rafting-trails/packrafting-tara-canyon-montenegro-sljivansko-scepan-polje-168229204
 
+Els 60-65km finals passen gran part pel Durmitor National Park
+
+
+![image](https://github.com/acacha/worlds/assets/4015406/5756fe40-4011-4e18-af60-47344965ad0d)
+
+
+La ruta de tornada en cotxe:
+
 ![image](https://github.com/acacha/worlds/assets/4015406/aecae9ee-6287-4b11-9c75-315972c2565d)
 
 
