@@ -368,6 +368,17 @@ abril de 2022 amb l'equip Eggstream
 Webs útils
 - https://www.kayaksession.com/balkan-rivers-tour-2-part-3-moraca-action/ (Tour del riu dels Balcans)
 
+Altres:
+
+The River Moraˇca flows from its source to the capital Podgorica through an extremely beautiful canyon, which is undoubtably one of the most scenic in Europe. In its upper reaches, from the
+village of Redice the Moraˇca River, with its level V rapids in the inaccessible canyon is a must for top kayakers! From the Monastery at Moraˇca the river is a little easier, but is
+still only recommended for experienced kayakers. This section can only be watched from the road, high above there is a parking spot between two tunnels. The second half of the canyon is suitable for
+advanced kayakers - but caution is required after the entrance into M5: a difficult grade IV+ rapid follows an unrunable siphon.
+
+![image](https://github.com/acacha/worlds/assets/4015406/4d5269b8-7032-4a49-ab82-3da25fa2c999)
+
+https://gene17kayaking.com/articles/pdfs/montenegro.pdf
+
 ### P1
 
 - 16 km
