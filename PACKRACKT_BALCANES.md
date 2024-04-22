@@ -160,7 +160,6 @@ Els 60-65km finals passen gran part pel Durmitor National Park
 
 ![image](https://github.com/acacha/worlds/assets/4015406/5756fe40-4011-4e18-af60-47344965ad0d)
 
-
 La ruta de tornada en cotxe:
 
 ![image](https://github.com/acacha/worlds/assets/4015406/aecae9ee-6287-4b11-9c75-315972c2565d)
@@ -169,7 +168,11 @@ Mapa extret de https://cf.bstatic.com/xdata/images/hotel/max1024x768/29705236.jp
 
 ![image](https://github.com/acacha/worlds/assets/4015406/8e130fe7-8226-4ebd-9043-fd5647129ab0)
 
+Més mapes:
 
+![image](https://github.com/acacha/worlds/assets/4015406/c4dc0c13-1c31-4c8a-a20e-4a5a3ba8d927)
+
+de https://gene17kayaking.com/articles/pdfs/montenegro.pdf
 
 El Tara travessa el nord de Montenegro d'est a oest, des de la frontera albanesa fins a la frontera amb Bòsnia, i excava profundes gorges en un altiplà càrstic, al peu de les muntanyes de 2 parcs nacionals, inclòs DURMITOR. És navegable durant gairebé tota aquesta ruta. A la confluència amb el PIVA, el riu canvia de nom i es converteix en DRINA. Es manté navegable uns quants km més.
 
