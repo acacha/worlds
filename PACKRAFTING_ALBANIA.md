@@ -1,3 +1,7 @@
+# Autor
+
+Sergi Tur Badenas: https://www.instagram.com/acacha_worlds_furgo_van | https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
+
 # Vjosa river
 
 El Vjosa és un riu que té el naixament a Grecia, molt a prop de la frontera amb Albania s'uneixen els 3 rius Aoos (el principal que seria el Vjosa en la seva part grega), el Sarantaporos i  el Voidiomatis (curt però espectacular riu) i formen el riu Vjosa just a la seva entrada a Albania provinent de Grecia.
