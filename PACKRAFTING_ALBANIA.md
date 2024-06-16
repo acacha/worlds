@@ -2,6 +2,10 @@
 
 ## Wikiloc
 
+![image](https://github.com/acacha/worlds/assets/4015406/d9f62184-d445-49fa-a71b-2b9dc510eef4)
+
+
+https://www.wikiloc.com/rafting-trails/packrafting-i-bicicleta-albania-rio-vjosa-blue-eye-section-173910647
 
 ## Blue Eye
 
