@@ -1,6 +1,16 @@
-# SJOA river
+# Vjosa river
+
+El Vjosa és un riu que té el naixament a Grecia, molt a prop de la frontera amb Albania s'uneixen els 3 rius Aoos (el principal que seria el Vjosa en la seva part grega), el Sarantaporos i  el Voidiomatis (curt però espectacular riu) i formen el riu Vjosa just a la seva entrada a Albania provinent de Grecia.
+
+El riu és navegable fins a la Costa, diverses persones l'han navegat en tot el seu tram:
+
+- (Rowild Packrat)[https://rowildpackraft.com/] de (PackraftingSpain)[https://packraftingspain.com/]: https://rowildpackraft.com/ | https://packraftingspain.com/ el van fer (Jules)[https://www.instagram.com/juls.galende], (Luis Mora)[[https://www.instagram.com/juls.galende](https://www.instagram.com/luismoraconcept/)] i (Luis Pachamama)[https://www.instagram.com/luispachamama/]. Instagram: https://www.instagram.com/p/CidE50SIkDX/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+
+
+Vegeu també PACKRAFTING_GRECIA per informació del riu Aoos, el Voidiomatis i la Vikos Gorge.
 
 ## Wikiloc
+
 
 ![image](https://github.com/acacha/worlds/assets/4015406/d9f62184-d445-49fa-a71b-2b9dc510eef4)
 
