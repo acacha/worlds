@@ -12,6 +12,99 @@ Si voleu més tranquilitat, el nord de Grecia, especialment la zona del riu Arac
 
 https://github.com/acacha/worlds/blob/main/PACKRAFTING_GRECIA.md
 
+# Libros i webs con información
+
+A eaux vives:
+
+https://www.eauxvives.org/fr/topos/index#MoteurDeRecherche
+
+Hi ha 3 rius a part del conejut Vjosa i el Ozum Canyon:
+
+- Cemit - Cijevna | Cemit - Cijevna-P2 Cemit clàssic | Presa aigües amunt de Tamare - Confluència “Cem i Selcës”. 1,5 km IV(5) | P3 Gorges de Cemit
+confluència "Cem i Selcës" - frontera de Montenegro 8 km III(4)
+- Kir | Kir-P2 Kir mitjà | Dacaj (pont) - Ura e shtrenjtë (pont de formigó) 8 km
+IV(5)(X) E2
+- Valbona
+
+# Rius
+
+## Cemit - Cijevna
+
+- Cemit - Cijevna | Cemit - Cijevna-P2 Cemit clàssic | Presa aigües amunt de Tamare - Confluència “Cem i Selcës”. 1,5 km IV(5) | P3 Gorges de Cemit
+confluència "Cem i Selcës" - frontera de Montenegro 8 km III(4)
+
+![image](https://github.com/acacha/worlds/assets/4015406/7a5244f3-5375-4ce7-9419-01f7317ae1df)
+
+Localització geogràfica
+El Cemit neix a l'extrem nord d'  Albània  i desemboca a l'oest a l'Adriàtic. Pren el nom de Cijevna més enllà de la frontera amb  Montenegro , passa al sud de Podgorica i s'uneix a Moraca.
+Presentació
+Riu conegut pels caiacistes (locals i d'altres llocs), travessa magnífics congostos. Pot estar sec a l'estiu.
+Menjar
+Pluvial-nival
+Període favorable
+Primavera
+Escala
+una escala present sota el 1r pont de corda del P3, 65cm és un nivell mitjà
+Qualitat de l'aigua
+molt bo, color fantàstic
+Riscos especials
+Enganxament extrem a les ranures inferiors (i sifons integrals)
+Alternatives de navegació
+Alternatives d'aigua baixa: Zeta (classe II-III), Moraca
+Alternatives d'aigua mitjana: Zeta, Moraca
+Alternatives d'alta aigua:
+
+
+## Kir
+
+- Kir | Kir-P2 Kir mitjà | Dacaj (pont) - Ura e shtrenjtë (pont de formigó) 8 km
+
+Localització geogràfica
+Important vall càrstica al nord-oest d'Albània al massís de Dukagjin (Malësia e Dukagjinit), de fet la part SE del massís de Prokletje d'on també provenen Cemit i Valbona. RD afluent del Drin a Shkodër.
+Presentació
+Vall esplèndida, aigua i roca magnífiques! El pont Ura e Mesit és una bonica atracció. El Kir Superior encara està per descobrir, ja s'ha practicat (classe V). La part baixa P3 té poc desnivell fins a Shkoder.
+Menjar
+Pluja-neu
+Període favorable
+fusió màxima: objectiu de març-abril-maig
+Velocitat
+natural
+Qualitat de l'aigua
+pur
+Riscos especials
+sifons
+Rescat
+Shkoder
+Bones adreces
+podeu contactar amb Chris Schwab, que organitza regularment excursions en caiac a Albània.
+Webs útils
+https://www.kayaksession.com/albanian-whitewaters-europes-underrated-paddling-destination/
+Alternatives de navegació
+Alternatives d'aigua baixa: Valbona, Shala, Cemit
+Alternatives d'aigua mitjana: Valbona, Shala, Cemit
+Alternatives d'aigua alta: Cemit baix = Cijevna
+
+## Valbona
+
+Localització geogràfica
+Al nord d'Albània als Alps
+Presentació
+Riu de tipus alpí amb passatges en roca.
+Menjar
+Desglaç de neu!
+Període favorable
+Març, abril, maig o pluja.
+Escala
+És a Albània...
+Velocitat
+5-30 m3
+Qualitat de l'aigua
+Increïble, blau
+Temperatura de l'aigua
+Refredat
+Riscos especials
+Sifons
+
 # Vjosa river
 
 El Vjosa és un riu que té el naixament a Grecia, molt a prop de la frontera amb Albania s'uneixen els 3 rius Aoos (el principal que seria el Vjosa en la seva part grega), el Sarantaporos i  el Voidiomatis (curt però espectacular riu) i formen el riu Vjosa just a la seva entrada a Albania provinent de Grecia.
