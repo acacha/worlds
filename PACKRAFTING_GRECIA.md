@@ -37,7 +37,7 @@ https://rivermap.org/map/#lat=38.95213&lng=20.53347&styled=1&zoom=8.48694
 
 Greco Book:
 
-![Uploading image.png…]()
+![image](https://github.com/acacha/worlds/assets/4015406/93e44d07-5467-444a-ab45-cc7a54d7d0ba)
 
 
 # Epoca Ideal
