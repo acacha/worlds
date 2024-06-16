@@ -34,6 +34,12 @@ https://rivermap.org/map/#lat=38.95213&lng=20.53347&styled=1&zoom=8.48694
 
 ![image](https://github.com/acacha/worlds/assets/4015406/9ca830d4-0e3b-415f-94b1-cfda1621860b)
 
+
+Greco Book:
+
+![Uploading image.png…]()
+
+
 # Epoca Ideal
 
 Finals Març- Abril - Maig
