@@ -15,6 +15,22 @@ Albania està de moda (2024), en gran part suposo que els vols directes de BCN-T
 
 https://www.toros-outdoors.de/es/product/greco-kanufuehrer-wildwasser-griechenland-band-2/
 
+# Cuentas Youtube
+
+https://www.youtube.com/watch?v=FEAkQoOUh4U
+
+# Via Natura Camp
+
+Best local contacts: Dimitris and Nikos from Via Natura Camp
+
+https://www.facebook.com/ViaNaturaCamp
+
+# Pindos Kayak festival
+
+https://pindos-kayak-festival.com/
+
+https://www.facebook.com/events/via-natura/pindos-kayak-festival-2019/859860191067678/
+
 # Aplicaciones i webs con información
 
 **Eaux Vives**
@@ -82,7 +98,9 @@ https://www.wikiloc.com/rafting-trails/packrafting-greece-voidimatis-potamos-riv
 
 https://photos.app.goo.gl/qnwJfF8r9L6koKh7A
 
-# Arachtos
+# Arachthos Potamos
+
+## Wikiloc 
 
 # Kallaritikos
 
