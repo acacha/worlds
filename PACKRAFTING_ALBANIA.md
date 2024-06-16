@@ -12,6 +12,19 @@ Vegeu també PACKRAFTING_GRECIA per informació del riu Aoos, el Voidiomatis i l
 
 ![image](https://github.com/acacha/worlds/assets/4015406/90e94aac-894a-4526-97ee-6d90191b96ee)
 
+# Aplicacions
+
+# Secció 1
+
+De la frontera a Permet aprox
+
+Rivermap: 
+
+![image](https://github.com/acacha/worlds/assets/4015406/f25b2998-3d14-4ef7-a954-6ba74c55e173)
+
+Apareix com a la secció Aoos Lower:
+
+https://rivermap.org/map/?inf=628#lat=40.22010&lng=20.38118&styled=1&zoom=12.51127
 
 ## Wikiloc
 
