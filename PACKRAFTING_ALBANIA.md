@@ -4,10 +4,14 @@ El Vjosa és un riu que té el naixament a Grecia, molt a prop de la frontera am
 
 El riu és navegable fins a la Costa, diverses persones l'han navegat en tot el seu tram:
 
-- (Rowild Packrat)[https://rowildpackraft.com/] de (PackraftingSpain)[https://packraftingspain.com/]: https://rowildpackraft.com/ | https://packraftingspain.com/ el van fer (Jules)[https://www.instagram.com/juls.galende], (Luis Mora)[[https://www.instagram.com/juls.galende](https://www.instagram.com/luismoraconcept/)] i (Luis Pachamama)[https://www.instagram.com/luispachamama/]. Instagram: https://www.instagram.com/p/CidE50SIkDX/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
-
+- (Rowild Packraft)[https://rowildpackraft.com/] de (PackraftingSpain)[https://packraftingspain.com/]: https://rowildpackraft.com/ | https://packraftingspain.com/ el van fer (Jules)[https://www.instagram.com/juls.galende], (Luis Mora)[[https://www.instagram.com/juls.galende](https://www.instagram.com/luismoraconcept/)] i (Luis Pachamama)[https://www.instagram.com/luispachamama/]. Instagram: https://www.instagram.com/p/CidE50SIkDX/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+- Hilo Moreno: http://www.hilomoreno.es/es/expediciones/vjosa/
+- https://alpackaraft.com/blog/vjosa-river
 
 Vegeu també PACKRAFTING_GRECIA per informació del riu Aoos, el Voidiomatis i la Vikos Gorge.
+
+![image](https://github.com/acacha/worlds/assets/4015406/90e94aac-894a-4526-97ee-6d90191b96ee)
+
 
 ## Wikiloc
 
