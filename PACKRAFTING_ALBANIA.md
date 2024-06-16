@@ -147,6 +147,10 @@ https://www.instagram.com/p/CVXA3mOqcli/
 
 És ideal combinar amb Langarice Canyon que mereix una visita per les seves aigues termals.
 
+Fotos Langarica:
+
+https://photos.app.goo.gl/eeu8nPsgi9ccxGNt7
+
 ## Secció 2
 
 ![image](https://github.com/acacha/worlds/assets/4015406/3c24c8e7-d668-4a7a-b0be-ea164c6bf686)
