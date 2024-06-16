@@ -1,4 +1,4 @@
-# Autor
+![IMG_20240607_122410](https://github.com/acacha/worlds/assets/4015406/a059cc82-1a47-44ff-98b3-fc5639bda1d4)# Autor
 
 Sergi Tur Badenas: https://www.instagram.com/acacha_worlds_furgo_van | https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
@@ -100,6 +100,19 @@ https://photos.app.goo.gl/qnwJfF8r9L6koKh7A
 
 # Arachthos Potamos
 
+Es pot fer Shuttle amb la gent del camping Via Natura (contactar amb Nikos), em va costar 15€ i a més em van acabar guiant.
+
+El riu és fàcil, sense complicacions, algún ràpid de clase III, però també és veritat que el nivell de l'aigua era baix.
+
+Val la pena visitar la cascada que està amagada però es pot trobar la seva indicació a Google Maps.
+
+![IMG_20240607_122410](https://github.com/acacha/worlds/assets/4015406/769b86a0-926a-413a-b8cc-40ef8c6438d9)
+
+
+No us perdeu tampoc una visita al Plaka Bridge
+
+![IMG_20240606_210219](https://github.com/acacha/worlds/assets/4015406/7ba524bd-3486-499e-944a-e5ff38d897b4)
+
 ## Wikiloc 
 
 https://www.wikiloc.com/rafting-trails/bike-i-packrafting-greece-kalarritikos-potamos-i-arachthos-173510293
@@ -109,6 +122,12 @@ https://www.wikiloc.com/rafting-trails/bike-i-packrafting-greece-kalarritikos-po
 https://photos.app.goo.gl/yZW4ztHZEWRUtgGN8
 
 # Kallaritikos
+
+Genial per combinar amb Arachtos en un dia ja que és afluent del riu Arachthos
+
+Wikiloc:
+
+https://www.wikiloc.com/rafting-trails/bike-i-packrafting-greece-kalarritikos-potamos-i-arachthos-173510293
 
 # Aoos River (Vjosa en Albania)
 
