@@ -102,6 +102,12 @@ https://photos.app.goo.gl/qnwJfF8r9L6koKh7A
 
 ## Wikiloc 
 
+https://www.wikiloc.com/rafting-trails/bike-i-packrafting-greece-kalarritikos-potamos-i-arachthos-173510293
+
+## Google Fotos
+
+https://photos.app.goo.gl/yZW4ztHZEWRUtgGN8
+
 # Kallaritikos
 
 # Aoos River (Vjosa en Albania)
