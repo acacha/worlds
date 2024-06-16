@@ -21,6 +21,11 @@ https://www.toros-outdoors.de/es/product/greco-kanufuehrer-wildwasser-griechenla
 
 https://www.eauxvives.org/fr/ Té una secció dedicada a Grecia:
 
+https://www.eauxvives.org/fr/topos/index#MoteurDeRecherche
+
+![image](https://github.com/acacha/worlds/assets/4015406/274aa48c-cdf7-4a69-b980-e382012a85aa)
+
+
 Rivermap:
 
 https://rivermap.org/map/#lat=38.95213&lng=20.53347&styled=1&zoom=8.48694
@@ -32,6 +37,30 @@ https://rivermap.org/map/#lat=38.95213&lng=20.53347&styled=1&zoom=8.48694
 # Epoca Ideal
 
 Finals Març- Abril - Maig
+
+# Voidomatis
+
+# Arachtos
+
+# Kallaritikos
+
+# Aoos River (Vjosa en Albania)
+
+# Acheronte
+
+# Erymanthos
+
+# Karpeniositis
+
+# Louros
+
+# Lousios
+
+# Neda
+
+# Sellas
+
+# Selinious o Selinountas
 
 # GOOGLE FOTOS
 
