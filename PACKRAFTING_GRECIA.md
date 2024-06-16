@@ -1,4 +1,4 @@
-![IMG_20240607_122410](https://github.com/acacha/worlds/assets/4015406/a059cc82-1a47-44ff-98b3-fc5639bda1d4)# Autor
+# Autor
 
 Sergi Tur Badenas: https://www.instagram.com/acacha_worlds_furgo_van | https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
@@ -15,9 +15,20 @@ Albania està de moda (2024), en gran part suposo que els vols directes de BCN-T
 
 https://www.toros-outdoors.de/es/product/greco-kanufuehrer-wildwasser-griechenland-band-2/
 
+Llistes de rius:
+
+![image](https://github.com/acacha/worlds/assets/4015406/038d5cf7-f470-402d-be0d-2c53485c3810)
+
+![image](https://github.com/acacha/worlds/assets/4015406/c3e552d7-5a09-47e9-a363-2cdcf5db3a2c)
+
+
 # Cuentas Youtube
 
 https://www.youtube.com/watch?v=FEAkQoOUh4U
+
+https://www.youtube.com/@hotzstGaming
+
+https://www.youtube.com/watch?v=RAvbw6ICnmU&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq
 
 # Via Natura Camp
 
@@ -61,6 +72,8 @@ Greco Book:
 Finals Març- Abril - Maig
 
 # Voidomatis - Vikos Gorge - Venus canyon
+
+https://www.youtube.com/watch?v=PM8x2QhUMkQ&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=10
 
 ## Introducció 
 
@@ -108,10 +121,13 @@ Val la pena visitar la cascada que està amagada però es pot trobar la seva ind
 
 ![IMG_20240607_122410](https://github.com/acacha/worlds/assets/4015406/769b86a0-926a-413a-b8cc-40ef8c6438d9)
 
+![IMG_20240607_122410](https://github.com/acacha/worlds/assets/4015406/a059cc82-1a47-44ff-98b3-fc5639bda1d4)
 
 No us perdeu tampoc una visita al Plaka Bridge
 
 ![IMG_20240606_210219](https://github.com/acacha/worlds/assets/4015406/7ba524bd-3486-499e-944a-e5ff38d897b4)
+
+https://www.youtube.com/watch?v=cM1_NjT0sKQ&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=8
 
 ## Wikiloc 
 
@@ -129,9 +145,17 @@ Wikiloc:
 
 https://www.wikiloc.com/rafting-trails/bike-i-packrafting-greece-kalarritikos-potamos-i-arachthos-173510293
 
+https://www.youtube.com/watch?v=cM1_NjT0sKQ&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=8
+
 # Aoos River (Vjosa en Albania)
 
 # Acheronte
+
+https://www.youtube.com/watch?v=uTaMnlpTXRE&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=11
+
+# MileaPotamos
+
+https://www.youtube.com/watch?v=AAwqxyibEL8&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=7
 
 # Erymanthos
 
