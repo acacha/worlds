@@ -42,8 +42,25 @@ Fotos Dirk
 
 https://www.instagram.com/p/CVXA3mOqcli/
 
-### Wikiloc
+És ideal combinar amb Langarice Canyon que mereix una visita per les seves aigues termals.
 
+## Secció 2
+
+![image](https://github.com/acacha/worlds/assets/4015406/3c24c8e7-d668-4a7a-b0be-ea164c6bf686)
+
+Com es pot veure a les següents seccions vaig fer alguna part d'aquest riu combinant bici i packraft. 
+
+Les parts més interessant són la Gorga de Këlcyrë, que comença just després del poble del mateix nom. No us perdeu a la'esquerra del riu, a l'altre banda hi ha la carretera i una gasolinera, just després de Këlcyrë i a l'inici de la Gorga el impressionat Blue Eye, ambs uns colors, una transparència de l'aigua i una temperatura que et refrescarà encara que sigui agost i les temperatures estiguin a propo dels 40 graus!
+
+![image](https://github.com/acacha/worlds/assets/4015406/c58ced4a-4dd6-4887-8da5-beba3531497c)
+
+També és molt interessant (Gryka e Këlcyrës[https://www.google.com/maps/place/Gryka+e+K%C3%ABlcyr%C3%ABs/@40.2958448,20.1606992,640m/data=!3m1!1e3!4m6!3m5!1s0x135af1678a5d6cc1:0xd74fe3a21f22ae77!8m2!3d40.2967903!4d20.1617196!16s%2Fg%2F11pw5d06rw?entry=ttu] on hi ha unes cascades i multitud de surgències que cauen directament al riu Vjosa
+
+![image](https://github.com/acacha/worlds/assets/4015406/0482c24d-fdb9-431d-91e9-f37d0d846716)
+
+
+
+### Wikiloc
 
 ![image](https://github.com/acacha/worlds/assets/4015406/d9f62184-d445-49fa-a71b-2b9dc510eef4)
 
@@ -56,11 +73,6 @@ https://www.wikiloc.com/rafting-trails/packrafting-i-bicicleta-albania-rio-vjosa
 
 ### Google Fotos
 https://photos.app.goo.gl/wvo4bouijoTQejcu6
-
-## Secció 2
-
-![image](https://github.com/acacha/worlds/assets/4015406/3c24c8e7-d668-4a7a-b0be-ea164c6bf686)
-
 
 ## Secció 3
 
