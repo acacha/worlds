@@ -38,7 +38,43 @@ https://rivermap.org/map/#lat=38.95213&lng=20.53347&styled=1&zoom=8.48694
 
 Finals Març- Abril - Maig
 
-# Voidomatis
+# Voidomatis - Vikos Gorge - Venus canyon
+
+## Introducció 
+
+Establint com a base el camping Via Natura Voidomatis Rafting Base-
+
+https://maps.app.goo.gl/MWTkVWCi7gbPVXtu9
+
+Podeu contactar amb ells i parlar amb Dimitris, tio super simpàtic, coneixedor del riu i que us pot muntar Shuttles per anar a fer els rius en Kayak o packraft
+
+Val la pena veure previament la Gorga des del poble de Vikos, hi ha uns miradors preciosos, abans del poble de Vikos també hi ha uns miradors preciosos per veure la carretera serpentejant ([Aristi - Papingo hairpin road](https://www.google.com/maps/place/Aristi+-+Papingo+hairpin+road/@39.948733,20.6858903,14.61z/data=!4m6!3m5!1s0x135bb7efc8d8a87d:0x5d4bc713adcf18b4!8m2!3d39.948719!4d20.688684!16s%2Fg%2F11h4g8n2tc?entry=ttu)
+) que pujar a Papingo. A més va de camir per visitar el pont i parking que divideix el riu Voidiomatis en dos parts.
+
+Des del camping també s'està a prop del poble Aristos i el seu impresionant pont que dona sortida a les Gorges del Aoos.
+
+## Descripció
+
+El riu apareix de sobte, passa de no haver ni gota a haver-hi una surgència amb l'aigua de les més gelades que he provat mai (uns 3 graus aprox)
+
+![image](https://github.com/acacha/worlds/assets/4015406/4fd1683b-5bfc-452f-add7-9f916994db43)
+
+Voidomatis Springs -> https://www.google.com/maps/place/Voidomatis+Springs/@39.9395765,20.7001552,3453m/data=!3m1!1e3!4m6!3m5!1s0x135bca01d4f84d29:0x3ae0a87c9e24bf08!8m2!3d39.9456962!4d20.7154012!16s%2Fg%2F11g6njtv3z?entry=ttu
+
+La primera secció fins al pont que travesa el riu Voidiomatis camí a Papingo, és la més tècnica, a partir d'aquí el riu és una bassa de colors preciosos de clase 1.
+
+Ara bé la secció de la Gorga a part de ser tècnica (jo la vaig agafar amb tant poca aigua que bé no tenia gaire dificultat, alguna ola preciosa, però res que arribes a nivell IV ni 3 complicat). Tot portejable en esta época però atenció que amb aigua ha de ser MOLT diferent. Si ha d'anar però per que l'espectacle del color de la gorga és increible, grans parets, moltíssima vegetació, espectacular.
+
+
+## Ruta wikiloc
+
+Des del camping ens va fer el Shuttle amb explicacions en anglès molt interessants de tota la zona per 10€
+
+https://www.wikiloc.com/rafting-trails/packrafting-greece-voidimatis-potamos-river-vikos-mone-tes-panagias-tou-bikou-pont-de-klidonia-kaly-173755373
+
+## Google fotos
+
+https://photos.app.goo.gl/qnwJfF8r9L6koKh7A
 
 # Arachtos
 
