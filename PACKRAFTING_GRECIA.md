@@ -1,4 +1,4 @@
-# Autor
+![image](https://github.com/acacha/worlds/assets/4015406/d48236e4-f35c-4351-af81-049d603e8b50)# Autor
 
 Sergi Tur Badenas: https://www.instagram.com/acacha_worlds_furgo_van | https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
@@ -113,6 +113,9 @@ https://photos.app.goo.gl/qnwJfF8r9L6koKh7A
 
 # Arachthos Potamos
 
+![image](https://github.com/acacha/worlds/assets/4015406/42cbfd61-935d-401a-bd07-965dfb0272eb)
+
+
 Es pot fer Shuttle amb la gent del camping Via Natura (contactar amb Nikos), em va costar 15€ i a més em van acabar guiant.
 
 El riu és fàcil, sense complicacions, algún ràpid de clase III, però també és veritat que el nivell de l'aigua era baix.
@@ -139,6 +142,8 @@ https://photos.app.goo.gl/yZW4ztHZEWRUtgGN8
 
 # Kallaritikos
 
+![image](https://github.com/acacha/worlds/assets/4015406/d783fce0-faab-4dd5-9c5c-cae7d136265c)
+
 Genial per combinar amb Arachtos en un dia ja que és afluent del riu Arachthos
 
 Wikiloc:
@@ -149,9 +154,28 @@ https://www.youtube.com/watch?v=cM1_NjT0sKQ&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2E
 
 # Aoos River (Vjosa en Albania)
 
-# Acheronte
+# Acheronte | Rio Aqueronte, gargantes del Hades i del inframundo
+
+https://rivermap.org/map/?inf=602#lat=39.28525&lng=20.67220&styled=1&zoom=13.04994&topic=water
+
+![image](https://github.com/acacha/worlds/assets/4015406/be13062b-6458-4766-8445-9b78952e42c1)
+
+Como el resto de rios podeis encontrar información en la zona Balcanes de la aplicación White Water Guide.
+
+No pude realitzar la ruta por poca agua, un poco de barranquismo aquatico si però si un poco de turisteo i randonne aquatique
+Video:
 
 https://www.youtube.com/watch?v=uTaMnlpTXRE&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2ErAq&index=11
+
+## Google Fotos
+
+# Thyamis (Kalamas) | Kayak 
+
+Secció molt bonica però sense cap dificultat aigues braves. El podeu trobar a White Water Guide app classificat com a I-II. El vaig fer amb le kayak inflable
+
+Ruta wikiloc:
+
+https://www.wikiloc.com/hiking-trails/vrosina-epirus-greece-173117901
 
 # MileaPotamos
 
