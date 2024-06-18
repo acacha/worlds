@@ -169,6 +169,8 @@ https://www.youtube.com/watch?v=uTaMnlpTXRE&list=PLwrVvMxENS6_D3qHPSSMaJzxOk2C2E
 
 ## Google Fotos
 
+https://photos.app.goo.gl/EYmogZJ4aTrE2QPZ9
+
 # Thyamis (Kalamas) | Kayak 
 
 Secció molt bonica però sense cap dificultat aigues braves. El podeu trobar a White Water Guide app classificat com a I-II. El vaig fer amb le kayak inflable
@@ -176,6 +178,10 @@ Secció molt bonica però sense cap dificultat aigues braves. El podeu trobar a 
 Ruta wikiloc:
 
 https://www.wikiloc.com/hiking-trails/vrosina-epirus-greece-173117901
+
+## Google Fotos
+
+https://photos.app.goo.gl/rMwmQHqj58i8GW5p6
 
 # MileaPotamos
 
