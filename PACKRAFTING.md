@@ -2,7 +2,7 @@
 
 Nueva comunicada de packraft multiidoma! Nova comunicat de packraft multiidioma ! New packraft community
 
-https//packrafting.cat
+http://packrafting.cat TODO
 
 https://www.instagram.com/packrafting_cat
 
