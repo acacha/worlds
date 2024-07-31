@@ -1,6 +1,8 @@
-# Pacrafting.cat
+# Packrafting.cat
 
-Nueva comunicada de packraft multiidoma! Nova comunicat de packraft multiidioma ! New packraft community
+Nueva comunidad de packraft multiidoma! Nova comunicat de packraft multiidioma ! New packraft community ! 
+
+Multilanguage community mainly about packrafting but also Another water activities. Español, English and Catalan. Any other languages are welcome!
 
 http://packrafting.cat TODO
 
