@@ -4,7 +4,9 @@ Nueva comunidad de packraft multiidoma! Nova comunicat de packraft multiidioma !
 
 Multilanguage community mainly about packrafting but also Another water activities. Español, English and Catalan. Any other languages are welcome!
 
-http://packrafting.cat TODO
+http://packrafting.cat community web / web de la comunidad
+
+http://blog.packrafting.cat el blog
 
 https://www.instagram.com/packrafting_cat
 
