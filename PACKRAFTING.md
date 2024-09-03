@@ -1,5 +1,7 @@
 # Packrafting.cat
 
+**COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft)
+
 Nueva comunidad de packraft multiidoma! Nova comunicat de packraft multiidioma ! New packraft community ! 
 
 Multilanguage community mainly about packrafting but also Another water activities. Español, English and Catalan. Any other languages are welcome!
