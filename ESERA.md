@@ -1,3 +1,5 @@
+LLegiu: https://blog.packrafting.cat/el-esera-en-packraft
+
 # Notes 1 de Maig 2024
 
 El comehombres ha revifat! i se'm va cruspir ben cruspidet.
