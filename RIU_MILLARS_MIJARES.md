@@ -1,4 +1,8 @@
+# BLOG PACKRAFTING.CAT
 
+[Blog packrafting.cat](https://blog.packrafting.cat/)
+
+# Recursos
 
 Ver también: https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
