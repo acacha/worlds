@@ -1,6 +1,8 @@
 # BLOG PACKRAFTING.CAT
 
-[Blog packrafting.cat](https://blog.packrafting.cat/)
+Al [Blog packrafting.cat](https://blog.packrafting.cat/) blog de la comunitat  [packrafting.cat](https://packrafting.cat/) hi ha diverses entrades sobre el ríu Millars/Mijares.
+
+[Packrafting al Riu Millars o rio Mijares de la Monzona al poble enfosat dota el embassament de Campos Arenoso](https://blog.packrafting.cat/riu-millars-monzona-a-campos-de-arenoso)
 
 # Recursos
 
