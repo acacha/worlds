@@ -109,6 +109,8 @@ Listas packraft:
 
 ## Riu Noguera Pallaresa
 
+[Packraft en el río Noguera Pallaresa](https://packrafting.exposure.co/packaft-en-el-rio-noguera-pallaresa)
+
 Ruta wikiloc:
 
 https://ca.wikiloc.com/rutes-kaiac/packrafting-kayak-llavorsi-pont-de-gulleri-santuari-darbolo-monestir-de-santa-maria-de-gerri-ortone-146116606
