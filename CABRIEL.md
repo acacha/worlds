@@ -1,3 +1,5 @@
+Connsulteu https://blog.packrafting.cat/packrafting-rafting-en-la-hoces-del-cabriel [Packrafting en la Hoces del Cabriel](https://blog.packrafting.cat/packrafting-rafting-en-la-hoces-del-cabriel)
+
 # Fotos i vídeos
 
 https://photos.app.goo.gl/T39JYv7g8mu8RUWh8
