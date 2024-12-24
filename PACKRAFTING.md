@@ -1,6 +1,6 @@
 # Packrafting.cat
 
-**COLABORA**: [Buy me a Coffe Packrafting](https://vkm.is/rutaspackraft](https://buymeacoffee.com/packrafting)
+**COLABORA**: [Buy me a Coffe Packrafting](https://buymeacoffee.com/packrafting)
 
 **COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft)
 
