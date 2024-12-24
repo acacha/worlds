@@ -20,6 +20,17 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 
 - [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
 - [RIVERS OF MY LIFE The packraft routes that have changed my life. Photo by Carlos Izquierdo](https://blog.packrafting.cat/rivers-of-my-life)
+- [KAYAK PACKRAFT EN GORGAS RÍO ARDÈCHE Packrafting a través del famoso puente natural "Pont d'Arc" y las gorgas del Ardèche.](https://blog.packrafting.cat/kayak-packraft-en-gorgas-rio-ardeche-free)
+- [Kayak Packraft en el río Orb 32km de Packrafting en un río con diferentes ambientes.](https://blog.packrafting.cat/kayak-packraft-en-el-rio-orb)
+- [2025 PACKRAFT CALENDAR Calendar of Packrafting events. Also, Kayaking, SUP ...](https://blog.packrafting.cat/calendar)
+- [2025 CALENDARIO PACKRAFTING Calendario de eventos de Packrafting, Kayaking, SUP.](https://blog.packrafting.cat/2025-calendario-packrafting)
+- [CALENDARI PACKRAFT 2025
+Calendari d'esdeveniments de Packrafting, Caiac, SUP.](https://blog.packrafting.cat/calendrier-packraft-2025)
+- [Packraft al riu Bergantes  Un riu en un entorn típic "dels Ports" que poques vegades es pot remar](https://blog.packrafting.cat/packraft-al-riu-bergantes)
+- [Packrafting en Gales. Río Dee Llangollen O una historia de cómo, por casualidad, estuve en el lugar adecuado en el momento adecuado.](https://blog.packrafting.cat/packrafting-en-gales-rio-dee-llangollen)
+- [Packrafting in Soča river from the confluence Koritnica to Sprenica 1  T1 From campsite Liza via bridge Čezsoča (Prijon Center), Slap boka and Sprenica 1](https://blog.packrafting.cat/packrafting-in-soca-river-from-the-confluence-koritnica-to-sprenica-1)
+- [Packraft on the river Soca (Slovenia) Upper-soca section
+From Lepena (near Velika Korita) to the confluence with the river Koritnica (camping Liza). Class III-IV](https://blog.packrafting.cat/packraft-on-the-river-soca-slovenia-upper-soca-section)
 - [Packraft Río Ésera - Tramo de Campo a Silla
 T3 - 6.4 Km de clase II-III ideal para iniciarse y un poco de playboating.](https://blog.packrafting.cat/packraft-rio-esera-tramo-de-campo-a-silla)
 - [Soča River. The European mecca of Kayaking... and of course, packraft 😉. A dream come true!](https://blog.packrafting.cat/soca-river-the-european-mecca-of-kayaking)
