@@ -20,6 +20,23 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 
 - [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
 
+- [T1 Packrafting Koutajoki-Savinajoki river Oulanka National Park Finlandia 17.5km de packraft en el cañón del río Savinajoki. Rápidos clase II.](https://blog.packrafting.cat/t1-packrafting-koutajoki-savinajoki-river-oulanka-national-park-finland)
+- [Río Soča. Packraft Calma chicha de Kobarid a Tolmin T6. Las comparaciones son odiosas. Precioso tramo de packrafting iniciación, 14km clase II.](https://blog.packrafting.cat/rio-soca-packraft-calma-chicha-de-kobarid-a-tolmin)
+- [Río Soča. Packraft en la sección Otona - Kobarid. T5. 4,2 Km de packrafting clase III(III+) en el tramo clásico del río Soca.](https://blog.packrafting.cat/rio-soca-packraft-en-la-seccion-otona-kobarid)
+- [Río Soča. Packrafting de Tronovo 1 a Tronovo 2. El campo de eslalon T3 y T4 1km Clase III-IV y sección no recomendable.](https://blog.packrafting.cat/rio-soca-packrafting-de-tronovo1-a-tronovo2-el-campo-de-eslalom)
+- [Río Soča. Packraft de Sprenica 1 a Tronovo 1 T2 packrafting en Eslovenia de Sprenica 1 a Tronovo 1.](https://blog.packrafting.cat/rio-soca-packraft-de-sprenica1-a-tronovo1)
+- [Río Soča Packrafting de la confluencia Koritnica a Sprenica 1 T1 Del camping Liza pasando por el puente Čezsoča (Prijon Center), Slap boka y Sprenica 1](https://blog.packrafting.cat/rio-soca-packrafting-koritnica-camping-liza-cezsoca-slap-boka-sprenica1)
+- [Packrafting Río Koritnica Precioso río en el Valle de Soca, cerca de Bovec en el Triglav National Park.](https://blog.packrafting.cat/packrafting-rio-koritnica-valle-del-soca-bovec-triglav-national-park)
+- [Packraft en el río Soca (Eslovenia) Tramo Upper-soca
+De Lepena (cerca Velika Korita) a la confluencia con el río Koritnica (camping Liza). Clase III-IV](https://blog.packrafting.cat/packraft-rio-soca-eslovenia-upper-soca-lepena-velika-korita-a-confluencia-koritnica-camping-liza)
+- [Club Espadà-Millars Club situado en Onda, del que varios Packrafters somos socios. Porque no todo es Packraft!](https://blog.packrafting.cat/club-piraguismo-espada-millars-calendario)
+- [Packraft en Oulanka National Park El paraíso packrafter en el círculo polar ártico](https://blog.packrafting.cat/packraft-en-oulanka-national-park-finlandia)
+- [Packraft río Ésera de Santaliestra a Perarrúa Packrafting en el tramo T5 del río Ésera - Santaliestra - Besians - Perarrúa. Cl III](https://blog.packrafting.cat/packraft-rio-esera-santaliestra-a-perarrua)
+- [PACKRAFT EN EL RÍO NOGUERA PALLARESA
+La joya de aguas bravas de los pirineos.](https://blog.packrafting.cat/packaft-en-el-rio-noguera-pallaresa)
+- [Río Ésera. Tramo Pirámides - Santaliestra. T4 - 9.5 Km de clase III-IV ideal para los yonkis de la Adrenalina. Segunda parte del clásico.](https://blog.packrafting.cat/rio-esera-tramo-piramides-santaliestra)
+- [Packrafting Noguera Pallaresa tramo clásico de Llavorsí a Sort 15km de diversión continua con rápidos clase III (IV)](https://blog.packrafting.cat/packrafting-noguera-pallaresa-tramo-clasico-de-llavorsi-a-sort)
+- [Packraft Río Ésera - Tramo de Campo a Silla T3 - 6.4 Km de clase II-III ideal para iniciarse y un poco de playboating.](https://blog.packrafting.cat/packraft-rio-esera-tramo-de-campo-a-silla)
 - [Packrafting río Ésera - Eriste - Villanova Tramo 0 - 5,5km Cl III-IV (V)](https://blog.packrafting.cat/packrafting-rio-esera-eriste-villanova)
 - [Ríu Millars
 Tram de col·leccionista. De Monzona a Campos de Arenoso.](https://blog.packrafting.cat/riu-millars-monzona-a-campos-de-arenoso)
