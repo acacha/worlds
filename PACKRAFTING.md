@@ -18,6 +18,16 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 
 # Rios
 
+- [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
+
+- [Packrafting río Ésera - Eriste - Villanova Tramo 0 - 5,5km Cl III-IV (V)](https://blog.packrafting.cat/packrafting-rio-esera-eriste-villanova)
+- [Ríu Millars
+Tram de col·leccionista. De Monzona a Campos de Arenoso.](https://blog.packrafting.cat/riu-millars-monzona-a-campos-de-arenoso)
+- [Packraft Río Ésera - Congosto del Ventamillo T1 - De la embotelladora de Veri a la Central hidroeléctrica de Seira - 9 km Cl IV-V (1 infranqueable)](https://blog.packrafting.cat/packraft-rio-esera-congosto-del-ventamillo)
+- [Packraft Río Ésera - Congosto de Seira. T2 de la central hidroeléctrica de Seira a embalse de Campo. 9,5 km Cl III-IV (5)](https://blog.packrafting.cat/packraft-rio-esera-congosto-de-seira)
+- [El Ésera en packraft. Observando puentes románicos desde la cresta de la ola.](https://blog.packrafting.cat/el-esera-en-packraft)
+- [Río Soča. La meca europea del Kayak... y como no, del packraft 😉. Un sueño cumplido!](https://blog.packrafting.cat/rio-soca-la-meca-europea-del-kayak)
+- [Río Noguera Ribagorzana - Congost de Montrebei - Packraft. O como la tremenda sequía nos permite descubrir un río escondido por la actividad humana.](https://blog.packrafting.cat/rio-noguera-ribagorzana-congost-de-montrebei-packraft)
 - [Packrafting in Wales. River Dee. Llangollen Or a story of how, by chance, I've been in the right place at the right time](https://blog.packrafting.cat/packrafting-in-wales-river-dee-langollen)
 - [Blogs sobre packrafting en castellano Recomendaciones de lectura para este verano](https://blog.packrafting.cat/blogs-sobre-packrafting-en-castellano)
 - [Solo packrafting en Osum Canyon Albania
