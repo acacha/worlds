@@ -19,7 +19,28 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 # Rios
 
 - [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
-
+- [RIVERS OF MY LIFE The packraft routes that have changed my life. Photo by Carlos Izquierdo](https://blog.packrafting.cat/rivers-of-my-life)
+- [Packraft Río Ésera - Tramo de Campo a Silla
+T3 - 6.4 Km de clase II-III ideal para iniciarse y un poco de playboating.](https://blog.packrafting.cat/packraft-rio-esera-tramo-de-campo-a-silla)
+- [Soča River. The European mecca of Kayaking... and of course, packraft 😉. A dream come true!](https://blog.packrafting.cat/soca-river-the-european-mecca-of-kayaking)
+- [Europe packraft meetup European Packraft meetup. Packrafting in Soca River, Slovenia](https://blog.packrafting.cat/europe-packraft-meetup)
+- ["Otoñal" Tardoral del riu Ebre 2024 de Garcia a Benifallet La baixada anual organitzada pel club Espadà Millars](https://blog.packrafting.cat/kayak-riu-ebre-otoal-club-espada-millars-2024)
+- [ELS ESTRETS D'ARNES EN PACKRAFT? Les llevantades donen vida als ports](https://blog.packrafting.cat/els-estrets-darnes-en-packraft)
+- [T6 Packrafting Kuusinkijoki Oulanka National Park 15.7 km with the best rapids in the area](https://blog.packrafting.cat/t6-packrafting-kuusinkijoki-oulanka-national-park](https://blog.packrafting.cat/t6-packrafting-kuusinkijoki-parque-nacional-oulanka-finlandia)
+- [T5 Packrafting Kitkajoki Juuma - Millikoski rapids - Aallokkokoski rapids  (english version) The best 21.5 km of Packraft on a river with rapids of all levels in a dreamlike natural environment.](https://blog.packrafting.cat/t5-packraft-kitkajoki-juuma-millikoski-rapids-aallokkokoski-rapids)
+- [T4 Packrafting Kitkajoki Upper part
+14,5 km de Packraft clase II-III de Käylä - Käylänkoski y Harjakoski Rapids - basecamp Oulanka Beach.](https://blog.packrafting.cat/t4-packrafting-kitkajoki-upper-part)
+- [T3 River Oulankajoki lower part Kiutaköngäs - Russian Border 25.5km of endless meanders!](https://blog.packrafting.cat/t3-river-oulankajoki-lower-part-kiutakongas-russian-border)
+- [T2 Packraft in Oulankajoki river Upper Part from Oulanka to the national park visitors center
+22.3 km rapids class II-IV. Oulanka Canyon, Pikkuköngäs and Tayvalköngäs.](https://blog.packrafting.cat/t2-packraft-in-oulankajoki-river-upper-part-from-oulanka-to-the-national-park-visitors-center)
+- [T1 Packrafting river Koutajoki-Savinajoki Oulanka National Park Finlandia
+17.5km of packraft in the Savinajoki River canyon. Class II rapids.](https://blog.packrafting.cat/t1-packrafting-river-koutajoki-savinajoki-oulanka-national-park-finlandia)
+- [Packraft en el río Bergantes Un río que pocas veces se puede remar en un entorno típico "dels Ports"](https://blog.packrafting.cat/packraft-en-el-rio-bergantes)
+- [Packraft in Oulanka National Park Packrafter’s paradise in the Arctic Circle (english version)](https://blog.packrafting.cat/packraft-in-oulanka-national-park)
+- [T5 Packrafting Kitkajoki Juuma - Millikoski rapids - Aallokkokoski rapids Los mejores 21,5 km de Packraft en un río con rápidos de todos los niveles y en un entorno natural de ensueño.](https://blog.packrafting.cat/packrafting-kitkajoki-river-millikoski-rapids-aallokkokoski-rapids-juuma-hrava)
+- [T4 Packrafting Kitkajoki Upper part 14,5 km de Packraft clase II-III de Kaïla - Käylänkoski y Harjakoski Rapids - basecamp Oulanka Beach.](https://blog.packrafting.cat/t4-packrafting-kitkajoki-upper-part-oulanka-national-park-kaylankoski-rapids)
+- [T3 Oulankajoki lower part Kiutaköngäs - Frontera Rusa 25.5km de infinitos meandros!](https://blog.packrafting.cat/packraft-oulanka-national-park-finland-oulankajoki-river-lower-part-centro-de-visitantes-kuitankongas-frontera-rusa)
+- [T2 Packraft en Oulankajoki river Upper Part de Oulanka al centro de visitantes del parque nacional 22.3 km rápidos clase II-IV. Cañón de Oulanka, Pikkuköngäs y Tayvalköngäs.](https://blog.packrafting.cat/t2-packrafting-oulankajoki-river-upper-part-oulanka-isokuusikko-centro-visitantes-outlanka-national-park-taivalkongas-rapids)
 - [T1 Packrafting Koutajoki-Savinajoki river Oulanka National Park Finlandia 17.5km de packraft en el cañón del río Savinajoki. Rápidos clase II.](https://blog.packrafting.cat/t1-packrafting-koutajoki-savinajoki-river-oulanka-national-park-finland)
 - [Río Soča. Packraft Calma chicha de Kobarid a Tolmin T6. Las comparaciones son odiosas. Precioso tramo de packrafting iniciación, 14km clase II.](https://blog.packrafting.cat/rio-soca-packraft-calma-chicha-de-kobarid-a-tolmin)
 - [Río Soča. Packraft en la sección Otona - Kobarid. T5. 4,2 Km de packrafting clase III(III+) en el tramo clásico del río Soca.](https://blog.packrafting.cat/rio-soca-packraft-en-la-seccion-otona-kobarid)
