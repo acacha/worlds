@@ -1,5 +1,7 @@
 # Packrafting.cat
 
+**COLABORA**: [Buy me a Coffe Packrafting]([https://vkm.is/rutaspackraft](https://buymeacoffee.com/packrafting))
+
 **COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft)
 
 Nueva comunidad de packraft multiidoma! Nova comunicat de packraft multiidioma ! New packraft community ! 
