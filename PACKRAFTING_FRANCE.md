@@ -2,7 +2,7 @@
 
 ## Neste Aure
 
-[Neste d'Aure](https://blog.packrafting.cat/packraft-neste-aure-france-packrafting)
+[Packraft en el Neste d'Aure](https://blog.packrafting.cat/packraft-neste-aure-france-packrafting)
 
 
 # Rios del Macizo central
