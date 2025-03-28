@@ -37,7 +37,7 @@ T3 - 6.4 Km de clase II-III ideal para iniciarse y un poco de playboating.](http
 - [Europe packraft meetup European Packraft meetup. Packrafting in Soca River, Slovenia](https://blog.packrafting.cat/europe-packraft-meetup)
 - ["Otoñal" Tardoral del riu Ebre 2024 de Garcia a Benifallet La baixada anual organitzada pel club Espadà Millars](https://blog.packrafting.cat/kayak-riu-ebre-otoal-club-espada-millars-2024)
 - [ELS ESTRETS D'ARNES EN PACKRAFT? Les llevantades donen vida als ports](https://blog.packrafting.cat/els-estrets-darnes-en-packraft)
-- [T6 Packrafting Kuusinkijoki Oulanka National Park 15.7 km with the best rapids in the area](https://blog.packrafting.cat/t6-packrafting-kuusinkijoki-oulanka-national-park](https://blog.packrafting.cat/t6-packrafting-kuusinkijoki-parque-nacional-oulanka-finlandia)
+- [T6 Packrafting Kuusinkijoki Oulanka National Park 15.7 km with the best rapids in the area](https://blog.packrafting.cat/t6-packrafting-kuusinkijoki-oulanka-national-park)
 - [T5 Packrafting Kitkajoki Juuma - Millikoski rapids - Aallokkokoski rapids  (english version) The best 21.5 km of Packraft on a river with rapids of all levels in a dreamlike natural environment.](https://blog.packrafting.cat/t5-packraft-kitkajoki-juuma-millikoski-rapids-aallokkokoski-rapids)
 - [T4 Packrafting Kitkajoki Upper part
 14,5 km de Packraft clase II-III de Käylä - Käylänkoski y Harjakoski Rapids - basecamp Oulanka Beach.](https://blog.packrafting.cat/t4-packrafting-kitkajoki-upper-part)
