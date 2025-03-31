@@ -2,7 +2,10 @@
 
 Al [Blog packrafting.cat](https://blog.packrafting.cat/) blog de la comunitat  [packrafting.cat](https://packrafting.cat/) hi ha diverses entrades sobre el ríu Millars/Mijares.
 
-[Packrafting al Riu Millars o rio Mijares de la Monzona al poble enfosat dota el embassament de Campos Arenoso](https://blog.packrafting.cat/riu-millars-monzona-a-campos-de-arenoso)
+- [1r Encuentro Aguas Bravas Alto Mijares](https://blog.packrafting.cat/1r-encuentro-aguas-bravas-alto-mijares)
+- [Packrafting al Riu Millars o rio Mijares de la Monzona al poble enfosat dota el embassament de Campos Arenoso](https://blog.packrafting.cat/riu-millars-monzona-a-campos-de-arenoso)
+- Hay infinitud de entradas en el Blog de Carlos Izquierdo, la vida es silbar:
+- Wikiloc: https://blog.packrafting.cat/1r-encuentro-aguas-bravas-alto-mijares#section-6708496
 
 # Recursos
 
