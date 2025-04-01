@@ -81,6 +81,7 @@ Tram de col·leccionista. De Monzona a Campos de Arenoso.](https://blog.packraft
 - [Blogs sobre packrafting en castellano Recomendaciones de lectura para este verano](https://blog.packrafting.cat/blogs-sobre-packrafting-en-castellano)
 - [Solo packrafting en Osum Canyon Albania
 Packraft + bicicleta en un río color chocolate blanco cuyas agua escarpan un hermoso cañón mediterráneo.](https://blog.packrafting.cat/solo-packrafting-en-osum-canyon-albania)
+- [Durance Rivierre Packraft](https://blog.packrafting.cat/packraft-durance-riviere-gil-a-embrun-rabioux)
 
 # Sobre el autor
 
