@@ -74,7 +74,7 @@ Wikiloc:
   
 ## Tramo bajo
 
-[Packraft Kayak hinchable en el río Lor]([https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia](https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia#section-6709530))
+[Packraft Kayak hinchable en el río Lor](https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia#section-6709530)
 
 Fotos:
 - https://photos.app.goo.gl/xCHRciNKiG1i1nMY8
