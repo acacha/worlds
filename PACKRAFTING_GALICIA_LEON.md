@@ -64,7 +64,7 @@ Río Selmo (4ª día) otro precioso río de la zona de valdeorras, con más de 2
 
 ## Tramo intermedio
 
-[Packraft Kayak hinchable en el río Lor](https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia](https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia#section-6709530)
+[Packraft Kayak hinchable en el río Lor](https://blog.packrafting.cat/packraft-kayak-en-el-rio-lor-galicia)
 
 Fotos:
 - https://photos.app.goo.gl/xCHRciNKiG1i1nMY8
