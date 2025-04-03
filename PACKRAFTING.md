@@ -19,6 +19,8 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 # Rafting
 
 - [Rafting en Pirineso río Ésera | Rafting Esera](https://pirineorafting.com/)
+- [Rafting y Kayak en Gredos](https://aventuragredos.com/)
+- [Rafting y Kayak Galicia](https://kayakgalicia.es/)
 
 # Rios
 
