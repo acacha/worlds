@@ -16,6 +16,10 @@ https://www.instagram.com/packrafting_cat
 
 Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&listId=736166
 
+# Rafting
+
+- [Rafting en Pirineso río Ésera | Rafting Esera](https://pirineorafting.com/)
+
 # Rios
 
 - [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
