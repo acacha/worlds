@@ -1,3 +1,18 @@
+Consultar:
+
+[Mekong Packraft Festival. Todas las rutas de packraft](https://blog.packrafting.cat/mekong-packraft-festival-rutas-packrafting-mas-habituales-en-el-festival-de-packraft-de-mekong)
+
+Todos los ríos del festival:
+
+Estos son los ríos más habituales del festival, ordenados por su cercanía a la base del festival, el camping les Rives du Drac:
+
+:Le Drac: este río pasa por el camping del Festival y en él se organizan muchos de los eventos, a destacar la bajada común del último día del festival, en domingo, donde todos los participantes del festival bajamos juntos el río Drac. 
+La Severaisse: situado en un precioso valle, es posiblemente la ruta que más exigirá a tus ojos, ya que el paisaje es aturdidor. No en vano se le llama el pequeño Himalaya francés a este valle que discurre a los pies del parque nacional de los Ecrins.
+La Souloise: si el valle de la Severaisse es el mejor paisaje de la zona, sin duda el río Souloisse y el tramo que se navega es el río más bonito de la zona, no te olvides de visitar cerca del embarque les Résurgence des Gillardes
+Le Drac Blanc: Afluente del Drac, este rápido pero intenso descenso tiene un desnivel importante aunque mantenido a lo largo del recorrido, hecho que provoca que sea uno de los descensos más rápidos cuando el río lleva agua.
+La Durance: un clásico, un poco más alejado, pero que bien merece una visita aunque sea para navegar el famoso rápido de Rabioux. Río de volumen, que siempre tiene suficiente agua para navegarlo rodeados de un paisaje impresionante.
+
+
 https://www.mekongpackraft.com/packraft-festival/
 
 https://privyetmir.co.uk/canoeing/southern5.html
