@@ -1,5 +1,13 @@
 # PIRINEOS FRANCESES
 
+Consulteu:
+
+- [Mekong packraft Festival](https://packrafting.exposure.co/mekong-packraft-festival-rutas-packrafting-mas-habituales-en-el-festival-de-packraft-de-mekong)
+- [Packrafting Le Drac. Packraft en el Mekong Packraft Festival](https://blog.packrafting.cat/packrafting-le-drac-packraft-en-el-mekong-packraft-festival)
+- [Packraft en la Séveraisse El pequeño Himalaya en los Alpes](https://packrafting.exposure.co/packraft-en-la-severaisse-el-pequeno-himalaya-en-los-alpes)
+- [Le Drac Blanc. Mekong Packraft Festival](https://packrafting.exposure.co/le-drac-blanc-mekong-packraft-festival)
+- [Packrafting en el río Souloise](https://packrafting.exposure.co/packrafting-en-el-rio-souloise)
+
 ## Neste Aure
 
 [Packraft en el Neste d'Aure](https://blog.packrafting.cat/packraft-neste-aure-france-packrafting)
