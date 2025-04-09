@@ -376,6 +376,14 @@ https://www.youtube.com/watch?v=-IWsPbu5RfY
 
 Llibre: Espectacular llibre sobre rutes per a packraft a França: https://www.mekongpackraft.com/en/product/guide-riviere-nature-en-kayak-gonflable/
 
+Consulteu:
+
+- [Mekong packraft Festival](https://packrafting.exposure.co/mekong-packraft-festival-rutas-packrafting-mas-habituales-en-el-festival-de-packraft-de-mekong)
+- [Packrafting Le Drac. Packraft en el Mekong Packraft Festival](https://blog.packrafting.cat/packrafting-le-drac-packraft-en-el-mekong-packraft-festival)
+- [Packraft en la Séveraisse El pequeño Himalaya en los Alpes](https://packrafting.exposure.co/packraft-en-la-severaisse-el-pequeno-himalaya-en-los-alpes)
+- [Le Drac Blanc. Mekong Packraft Festival](https://packrafting.exposure.co/le-drac-blanc-mekong-packraft-festival)
+- [Packrafting en el río Souloise](https://packrafting.exposure.co/packrafting-en-el-rio-souloise)
+
 ## PIRINEOS OCCIDENTALES FRANCESES
 
 https://gist.github.com/acacha/6a5cf84374524d0a6b243d63aaeea463
