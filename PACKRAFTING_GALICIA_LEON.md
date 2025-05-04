@@ -5,6 +5,11 @@ https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 - https://kayakgalicia.es/ : Con Freddy esta asegurada la calidad de formación, la seguridad y sobretodo el buen rollo y buen ambiente!
 - https://www.facebook.com/aventuragredos/?locale=es_LA
 
+# ¿Donde puedo hacer kayak en galicia?
+
+Consulta los [https://kayakgalicia.es/donde-puedo-hacer-kayak-en-galicia/
+](lugares donde practicar el kayak de aguas bravas en Galicia)
+
 # Niveles, conferencia hidrogràfica
 
 Miño - Sil:
