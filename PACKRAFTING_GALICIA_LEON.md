@@ -7,7 +7,7 @@ https://github.com/acacha/worlds/blob/main/PACKRAFTING.md
 
 # ¿Donde puedo hacer kayak en galicia?
 
-Consulta los [https://kayakgalicia.es/donde-puedo-hacer-kayak-en-galicia](lugares donde practicar el kayak de aguas bravas en Galicia).
+Consulta los [lugares donde practicar el kayak de aguas bravas en Galicia](https://kayakgalicia.es/donde-puedo-hacer-kayak-en-galicia).
 
 # Niveles, conferencia hidrogràfica
 
