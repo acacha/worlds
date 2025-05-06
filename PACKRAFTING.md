@@ -2,7 +2,7 @@
 
 **COLABORA**: [Buy me a Coffe Packrafting](https://buymeacoffee.com/packrafting)
 
-**COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft)
+**COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft) | [Packrafting.cat en Patreon](https://www.patreon.com/c/packraft)
 
 [¿Qué es el Packraft? Packrafting](https://telegra.ph/Packraft-05-06)
 
