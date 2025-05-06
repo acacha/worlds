@@ -22,6 +22,11 @@ Wikiloc routes: https://es.wikiloc.com/wikiloc/user.do?id=82727&event=favorites&
 - [Rafting y Kayak en Gredos](https://aventuragredos.com/)
 - [Rafting y Kayak Galicia](https://kayakgalicia.es/)
 
+# Blogs
+
+- [Packrafting.cat](https://blog.packrafting.cat)
+- [go-packrafting.blogspot.com](https://go-packrafting.blogspot.com/2025/05/inflatable-adventures-you-can-hike-with.html)
+
 # Rios
 
 - [Rios de mi vida](https://blog.packrafting.cat/rios-de-mi-vida)
