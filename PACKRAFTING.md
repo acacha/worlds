@@ -1,5 +1,7 @@
 # Packrafting.cat
 
+[Mekong Packraft Feestival en Patreon](https://www.patreon.com/posts/mekong-packraft-128298986)
+
 **COLABORA**: [Buy me a Coffe Packrafting](https://buymeacoffee.com/packrafting)
 
 **COLABORA**: [https://vkm.is/rutaspackraft](https://vkm.is/rutaspackraft) | [Packrafting.cat en Patreon](https://www.patreon.com/c/packraft)
